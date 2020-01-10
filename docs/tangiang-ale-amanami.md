@@ -1,4 +1,4 @@
-<h1>Tangiang Ale Amanami</h1>
+# Tangiang Ale Amanami
 
 **Nama lain:** Tangiang Na Pinodahon ni Tuhan Jesus tu Angka SiseanNa
 

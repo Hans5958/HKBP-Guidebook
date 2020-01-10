@@ -1,6 +1,6 @@
-<h1>Kesepuluh Firman</h1>
+# Sepuluh Perintah Allah
 
-**Nama lain:** Sepuluh Perintah Allah, Dasa Titah
+**Nama lain:** Kesepuluh Firman, Dasa Titah
 
 ## Titah Pertama
 Akulah Tuhan Allahmu, seru Tuhan kita. Tidak boleh ada allah lain, kecuali Aku.

@@ -1,4 +1,4 @@
-<h1>Patik Ni Debata</h1>
+# Patik Ni Debata
 
 ## Patik Parjolo
 Ahu do Jahowa DebataM, ninna Debatanta. Ndang jadi marangkup Ahu bahenonmu Debatam.

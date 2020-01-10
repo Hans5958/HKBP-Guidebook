@@ -1,4 +1,4 @@
-<h1>Doa Bapa Kami</h1>
+# Doa Bapa Kami
 
 **Nama lain:** Doa Yang Diajarkan Tuhan Yesus Kepada Murid-MuridNya
 

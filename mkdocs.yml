@@ -1,0 +1,24 @@
+theme: 
+  name: 'material'
+site_name: 'HKBP Guidebook'
+site_description: 'Kumpulan teks yang berhubungan dengan HKBP.'
+site_author: 'Hans5958'
+site_url: 'https://hans5958.github.io/HKBP-Guidebook'
+nav:
+  - 'Main Page': 'index.md'
+  - 'Sepuluh Perintah Allah':
+    - 'Bahasa Indonesia – Sepuluh Perintah Allah': 'sepuluh-perintah-allah.md'
+    - 'Bahasa Batak – Patik Ni Debata': 'patik-ni-debata.md'
+  - 'Kesaksian Iman Kristen':
+    - 'Bahasa Indonesia – Kesaksian Iman Kristen': 'kesaksian-iman-kristen.md'
+    - 'Bahasa Batak – Hata Haporseaon': 'hata-haporseaon.md'
+  - 'Doa Bapa Kami':
+    - 'Bahasa Indonesia – Doa Bapa Kami': 'doa-bapa-kami.md'
+    - 'Bahasa Batak – Tangiang Ale Amanami': 'tangiang-ale-amanami.md'
+  - 'Sakramen Baptisan Kudus':
+    - 'Bahasa Indonesia – Sakramen Baptisan Kudus': 'sakramen-baptisan-kudus.md'
+    - 'Bahasa Batak – Pandidion': 'pandidion.md'
+
+google_analytics: ['UA-49890594-3', 'auto']
+repo_name: 'GitHub'
+repo_url: 'https://github.com/Hans5958/CC-Creative-Guide'
