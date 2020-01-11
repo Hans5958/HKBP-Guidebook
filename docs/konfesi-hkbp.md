@@ -123,9 +123,9 @@ Kiranya semua majelis dan warga jemaat dengan rajin membaca dan mempergunakan Pe
 
 Yang berkuasa secara mutlak hanyalah Alkitab, sebab Allahlah yang mengerjakan atau menjadikannya. Tetapi Pengakuan Percaya ini berkuasa juga, sebab walaupun manusia yang menyusunnya, azasnya adalah di dalam Alkitab.
 
-"Maka Ia yang meneguhkan kami dengan kamu di dalam Kristus dan yang sudah mengurapi kami, itulah Allah. Ialah juga telah memeteraikan kita sambil mengaruniakan cengkeraman Roh masuk ke dalam hati kita (2 Kor. 1:21-22).
+"Maka Ia yang meneguhkan kami dengan kamu di dalam Kristus dan yang sudah mengurapi kami, itulah Allah. Ialah juga telah memeteraikan kita sambil mengaruniakan cengkeraman Roh masuk ke dalam hati kita *(2 Kor. 1:21-22)*
 
-"Adapun tiap kitab yang diwahyukan Allah berfaedah bagi pelajaran bagi hal yang menyatakan yang salah, bagi hal memperbaiki yang rusak dan bagi mengajarkan jalan yang baik". (2 Tim. 3:16-17).
+"Adapun tiap kitab yang diwahyukan Allah berfaedah bagi pelajaran bagi hal yang menyatakan yang salah, bagi hal memperbaiki yang rusak dan bagi mengajarkan jalan yang baik". *(2 Tim. 3:16-17)*
 
 Adalah patut supaya anggota-anggota Gereja taat pada kuasa ini, akan tetapi ketaatan ini janganlah merupakan paksa dan sekali-sekali tidak boleh mematikan suara hati nurani. Setiap orang harus bebas menyelidiki Pengakuan ini. Jika didapati hal-hal yang tidak sesuai dengan Firman Kudus dapat diajukan keberatannya kepada pimpinan Gereja. Maka Pengakuan Percaya yang ditetapkan di Sinode Godang di Sipoholon tanggal 28-30 Nopember 1951 adalah sebagai berikut:
 
@@ -137,7 +137,7 @@ Adalah patut supaya anggota-anggota Gereja taat pada kuasa ini, akan tetapi keta
 
 2. Pengakuan Percaya ini, adalah kesimpulan-kesimpulan dari hal yang kita percayai dan harapkan pada hidup ini dan pada hidup kelak.
 
-3. Pengakuan Percaya inilah dasar bagi khotbah-khotbah, pengajaran dan tuntutan hidup di dalam HKBP (Mat. 16:16).
+3. Pengakuan Percaya inilah dasar bagi khotbah-khotbah, pengajaran dan tuntutan hidup di dalam HKBP *(Mat. 16:16)*
 
 4. Pengakuan Percaya ini, ialah dasar bagi HKBP untuk menolak dan melawan ajaran yang sesat dan keliru, yaitu yang tidak sesuai dengan Firman Tuhan.
 
@@ -403,24 +403,23 @@ pada waktu yang tidak dapat diketahui. *(1 Tes 5:2; Mat 24:42; 44:50; Luk 12:35-
 
 Karena itu kita harus selalu bersiap seperti diperingatkan oleh Tuhan kita. *(Luk 12:35-36)*
 
-
 ## Konfesi 1996: Pasal 1 Tentang Allah
 
 ### A. Kepribadian Allah
 
-Kita mempercayai dan menyaksikan:
+**Kita mempercayai dan menyaksikan:**
 
-Allah itu esa, itulah TUHAN ALLAH, yang tidak berawal dan tidak berakhir, yang mahakuasa, yang keberadaanNya tidak terselami, yang tidak berobah, yang mahakudus, pemarah terhadap orang yang tidak tunduk kepada FirmanNya, yang mahatahu, yang hatinya benar, setia, yang menyatakan diriNya, pencipta segala sesuatu, yang memenuhi langit dan bumi, yang memelihara, yang pemurah, sumber kehidupan, berkat dan kebahagiaan, yang memerintah. Raja dari segala raja dan Tuhan dari segalanya, mahapemurah, pengasih, Pengampun, Juruselamat, yang hakumnya benar, yang menang, yang membangkitkan, Pemersatu, yang Gembala, Pembela, sumber dari segala pengetahuan. Dia jugalah yang menguasai sejarah dan kematian (Ulangan 6:4, Kel 3:14; Kej 17:1; Mazm 105:8; 1 Kor 1:9; 2 Tes 3:3; Luk 1:37; Roma 11:33; Ulangan 10:17; Roma 2:11 1 Kor 1:30; Mazm 103:8, 24:1; Yes 6:3; Yoh 3:16; 1 Tim 6:15-16).
+Allah itu esa, itulah TUHAN ALLAH, yang tidak berawal dan tidak berakhir, yang mahakuasa, yang keberadaanNya tidak terselami, yang tidak berobah, yang mahakudus, pemarah terhadap orang yang tidak tunduk kepada FirmanNya, yang mahatahu, yang hatinya benar, setia, yang menyatakan diriNya, pencipta segala sesuatu, yang memenuhi langit dan bumi, yang memelihara, yang pemurah, sumber kehidupan, berkat dan kebahagiaan, yang memerintah. Raja dari segala raja dan Tuhan dari segalanya, mahapemurah, pengasih, Pengampun, Juruselamat, yang hakumnya benar, yang menang, yang membangkitkan, Pemersatu, yang Gembala, Pembela, sumber dari segala pengetahuan. Dia jugalah yang menguasai sejarah dan kematian. *(Ulangan 6:4, Kel 3:14; Kej 17:1; Mazm 105:8; 1 Kor 1:9; 2 Tes 3:3; Luk 1:37; Roma 11:33; Ulangan 10:17; Roma 2:11 1 Kor 1:30; Mazm 103:8, 24:1; Yes 6:3; Yoh 3:16; 1 Tim 6:15-16)*
 
 Dengan pengakuan ini kita menekankan bahwa Allah senantiasa dekat, campur tangan, bekerja, mengatur dan menghakimi kehidupan setiap orang, kaum, bangsa dan segala ciptaan di seluruh penjuru dunia ini.
 
-Karena itu hanya Allah saja yang disembah, yang dipercayai, yang dituruti. Kita harus lebih takut, lebih mengasihi dan lebih yakin kepadaNya dari pada kepada yang lain yang ada di bumi ini. Ajaran yang meniadakan Allah dan keberadaanNya, demikian juga yang meng-allahkan ciptaan Allah, kita tolak. Kita juga menolak segala ajaran dan kebiasaan yang menyembah iblis dan kuasa kegelapan (band. R.P.P HKBP, II 2B hal 15 dan III.1.a.c.d. hal 17-180).
+Karena itu hanya Allah saja yang disembah, yang dipercayai, yang dituruti. Kita harus lebih takut, lebih mengasihi dan lebih yakin kepadaNya dari pada kepada yang lain yang ada di bumi ini. Ajaran yang meniadakan Allah dan keberadaanNya, demikian juga yang meng-allahkan ciptaan Allah, kita tolak. Kita juga menolak segala ajaran dan kebiasaan yang menyembah iblis dan kuasa kegelapan. *(band. R.P.P HKBP, II 2B hal 15 dan III.1.a.c.d. hal 17-180)*
 
 ### B. Ketritunggalan Allah
 
-Kita mempercayai dan menyaksikan:
+**Kita mempercayai dan menyaksikan:**
 
-Allah itu esa dan di dalam penyataanNya yang Tritunggal, yaitu Allah Bapa, Allah Anak dan Allah Roh Kudus, yang tidak berawal dan tidak berakhir (Yoh 5:19; 14:11; 1:1; 15:26; 2 Kor 13:13; Mat 28:19).
+Allah itu esa dan di dalam penyataanNya yang Tritunggal, yaitu Allah Bapa, Allah Anak dan Allah Roh Kudus, yang tidak berawal dan tidak berakhir. *(Yoh 5:19; 14:11; 1:1; 15:26; 2 Kor 13:13; Mat 28:19)*
 
 Berdasarkan ini kita menolak ajaran Triteisme yang mengatakan Allah orang Kristen itu ada tiga.
 
@@ -430,15 +429,15 @@ Allah Bapalah yang menciptakan, memelihara dan memerintah segala yang kelihatan 
 
 2. Allah Anak
 
-Allah Anak adalah Yesus Kristus, penyataan Allah Bapa yang mengosongkan diriNya dan menjadi manusia, yang dilahirkan oleh Maria, dikandung dari Roh Kudus sebelum ada mengenal suami Dialah Tuhan yang melindungi dan menyelamatkan manusia. Dia mempedulikan penderitaan manusia dan segala bangsa pada segenap waktu, dan Dia setia selama-lamanya. Dia menyelamatkan, membebaskan manusia dari kuasa iblis, dari perhambaan dosa, dan dari maut dan kematian, Dia menderita sengsara hingga mati di kayu salib, Dialah kesempurnaan korban pendamaian oleh Allah, karena dosa manusia. Dia turun ke dalam maut, bangkit kembali dari kematian pada hari ketiga, naik ke sorga, duduk di sebelah kanan Allah Tuhan, BapaNya. Karena itulah Dia ditinggikan oleh Allah, dan kepadaNya diberikanNya nama di atas segala nama. Agar semua lutut di sorga dan di bumi dan yang ada di bawah bumi sujud kepadaNya, dari situlah Dia membela semua orang percaya dan memerintah semuanya, sebelum Dia datang kembali ke dunia ini untuk menghakimi orang yang hidup dan yang mati. Agar semua lidah mengaku: "Yesus Kristuslah Tuhan, demi kemuliaan Allah Bapa" (Mat 28:18; Ibr 9:14; Filp 2:9-14; Ef 1:20-22. 1:7; Yoh 3:16).
+Allah Anak adalah Yesus Kristus, penyataan Allah Bapa yang mengosongkan diriNya dan menjadi manusia, yang dilahirkan oleh Maria, dikandung dari Roh Kudus sebelum ada mengenal suami Dialah Tuhan yang melindungi dan menyelamatkan manusia. Dia mempedulikan penderitaan manusia dan segala bangsa pada segenap waktu, dan Dia setia selama-lamanya. Dia menyelamatkan, membebaskan manusia dari kuasa iblis, dari perhambaan dosa, dan dari maut dan kematian, Dia menderita sengsara hingga mati di kayu salib, Dialah kesempurnaan korban pendamaian oleh Allah, karena dosa manusia. Dia turun ke dalam maut, bangkit kembali dari kematian pada hari ketiga, naik ke sorga, duduk di sebelah kanan Allah Tuhan, BapaNya. Karena itulah Dia ditinggikan oleh Allah, dan kepadaNya diberikanNya nama di atas segala nama. Agar semua lutut di sorga dan di bumi dan yang ada di bawah bumi sujud kepadaNya, dari situlah Dia membela semua orang percaya dan memerintah semuanya, sebelum Dia datang kembali ke dunia ini untuk menghakimi orang yang hidup dan yang mati. Agar semua lidah mengaku: "Yesus Kristuslah Tuhan, demi kemuliaan Allah Bapa." *(Mat 28:18; Ibr 9:14; Filp 2:9-14; Ef 1:20-22. 1:7; Yoh 3:16)*
 
 3. Allah Roh Kudus
 
-Allah Roh Kudus adalah penyataan Allah melalui RohNya. Di dalam kepribadianNya, ketritunggalan Allah, Roh Kudus bekerja bersama Allah Bapa dan Allah Anak, dari sejak awal sampai selama-lamanya. Roh Allahlah yang memelihara, menuntun, bernubuat bagi semua manusia dan meneguhkan hukum keadilan yang ada di dunia ini (Yer.11:2; 9:6; Yoel 3:1; Amsal 8:12-31; 1 Kor 14:3-6, 28; Wahyu 22).
+Allah Roh Kudus adalah penyataan Allah melalui RohNya. Di dalam kepribadianNya, ketritunggalan Allah, Roh Kudus bekerja bersama Allah Bapa dan Allah Anak, dari sejak awal sampai selama-lamanya. Roh Allahlah yang memelihara, menuntun, bernubuat bagi semua manusia dan meneguhkan hukum keadilan yang ada di dunia ini. *(Yer.11:2; 9:6; Yoel 3:1; Amsal 8:12-31; 1 Kor 14:3-6, 28; Wahyu 22)*
 
-Dialah yang menyampaikan Firman dan Wahyu dari Allah. Roh Kuduslah yang meneruskan pekerjaan Yesus Kristus di dunia ini, untuk memanggil, mengumpulkan, menyatukan orang percaya menjadi persekutuan (oikumene, koinonia), menggalakkan kesaksian (marturia) dan pelayanan (diakonia), dan yang mengkuduskan Gereja melalui Kabar Baik. Roh Kuduslah yang mengajar dunia ini tentang dosa, kebenaran dan hukum, Dialah yang memeteraikan keselamatan orang percaya, membuat orang bertobat, menerangi, membaharui kepribadian, menuntun manusia kepada kebenaran, mengajar manusia memuliakan Allah dan menyediakan senjata roh bagi orang percaya (Roma 8:14-17; 1 Kor 3:16; Tit 3:5; K. Rasul 2; Pengakuan Iman bagian ketiga dan artinya).
+Dialah yang menyampaikan Firman dan Wahyu dari Allah. Roh Kuduslah yang meneruskan pekerjaan Yesus Kristus di dunia ini, untuk memanggil, mengumpulkan, menyatukan orang percaya menjadi persekutuan (oikumene, koinonia), menggalakkan kesaksian (marturia) dan pelayanan (diakonia), dan yang mengkuduskan Gereja melalui Kabar Baik. Roh Kuduslah yang mengajar dunia ini tentang dosa, kebenaran dan hukum, Dialah yang memeteraikan keselamatan orang percaya, membuat orang bertobat, menerangi, membaharui kepribadian, menuntun manusia kepada kebenaran, mengajar manusia memuliakan Allah dan menyediakan senjata roh bagi orang percaya. *(Roma 8:14-17; 1 Kor 3:16; Tit 3:5; K. Rasul 2; Pengakuan Iman bagian ketiga dan artinya)*
 
-Dengan ajaran ini kita menekankan bahwa Roh yang kudus hanya satu itulah Roh Kudus. Dialah yang menjadikan Kabar Baik menghasilkan buah, dan yang mendirikan Gereja di dunia ini. Roh Kudus bekerja dari diriNya sendiri, tanpa kuasa manusia (Gal 5:2223; Ef 4:3-6). Dialah sumber dari segala pekerjaan besar (mujizat) yang memuliakan Allah.
+Dengan ajaran ini kita menekankan bahwa Roh yang kudus hanya satu itulah Roh Kudus. Dialah yang menjadikan Kabar Baik menghasilkan buah, dan yang mendirikan Gereja di dunia ini. Roh Kudus bekerja dari diriNya sendiri, tanpa kuasa manusia *(Gal 5:2223; Ef 4:3-6)*. Dialah sumber dari segala pekerjaan besar (mujizat) yang memuliakan Allah.
 
 Ajaran yang mengatakan Roh Kudus sama dengan roh-roh yang lain yang ada di dunia ini, ditolak. Dan menolak segala bentuk kerasukan roh, apakah itu upaya penjagaan diri manusia secara sadar ataupun yang lahir dari ketidaksadaran.
 
@@ -448,7 +447,7 @@ Demikian juga ajaran yang mengatakan bahwa orang yang dipenuhi Roh tidak perlu b
 
 Kita mengakui dan menyaksikan:
 
-Alkitab, yaitu Perjanjian Lama dan Perjanjian Baru adalah sungguh-sungguh Firman Allah. Alkitab menyatakan rencana Allah untuk menyelamatkan manusia yang pusatnya adalah Yesus Kristus. Kita mengerti Firman Allah melalui bimbingan Roh Kudus (l Kor 12:3; Yoh 16:15; 2 Petr 1:20-21).
+Alkitab, yaitu Perjanjian Lama dan Perjanjian Baru adalah sungguh-sungguh Firman Allah. Alkitab menyatakan rencana Allah untuk menyelamatkan manusia yang pusatnya adalah Yesus Kristus. Kita mengerti Firman Allah melalui bimbingan Roh Kudus. *(l Kor 12:3; Yoh 16:15; 2 Petr 1:20-21)*
 
 Segala tulisan yang diilhamkan Allah memang bermanfaat untuk mengajar, untuk menyatakan kesalahan, untuk memperbaiki kelakuan dan untuk mendidik orang dalam kebenaran. Dengan demikian tiap-tiap manusia kepunyaan Allah diperlengkapi untuk setiap perbuatan baik (2 Tim 3:16-17).
 
@@ -463,9 +462,9 @@ Kita menentang tindakan yang memasukkan Alkitab ke dalam peti orang mati karena 
 
 Manusia adalah ciptaan Allah, laki-laki dan perempuan, menurut gambarNya, sama dengan perangaiNya (Imago Dei), dengan martabat yang sama, dan kepada mereka diberikan kuasa untuk menguasai, memelihara dan mengolah seluruh ciptaanNya yang ada di dunia ini. Manusia diciptakanNya dalam kebebasan dan tanggungjawab untak melayani Allah dan seluruh ciptaanNya.
 
-Setelah manusia jatuh ke dalam dosa, karena godaan iblis, dan dosa itu menjadi dosa warisan bagi semua angkatan yang berikut, menjadikan manusia itu senantiasa dalam pencobaan, dikuasai oleh dosa (Roma 7:17), dan berhadapan dengan Allah hilanglah kehidupannya, dia melawan dan berbalik dari Allah: hukum Allah dilanggarnya, dia tidak malu melakukan dosa. Manusia dengan usahanya sendiri tidak sanggup melepaskan dirinya dari dosa. Untuk menyatakan keselamatan yang dari Allah, Allah menyuruh malaikatNya, yang diciptakan-Nya, membantu ahli waris kehidupan, karena Allahlah yang dapat menyelamatkan manusia.
+Setelah manusia jatuh ke dalam dosa, karena godaan iblis, dan dosa itu menjadi dosa warisan bagi semua angkatan yang berikut, menjadikan manusia itu senantiasa dalam pencobaan, dikuasai oleh dosa *(Roma 7:17)*, dan berhadapan dengan Allah hilanglah kehidupannya, dia melawan dan berbalik dari Allah: hukum Allah dilanggarnya, dia tidak malu melakukan dosa. Manusia dengan usahanya sendiri tidak sanggup melepaskan dirinya dari dosa. Untuk menyatakan keselamatan yang dari Allah, Allah menyuruh malaikatNya, yang diciptakan-Nya, membantu ahli waris kehidupan, karena Allahlah yang dapat menyelamatkan manusia.
 
-Tuhan menyampaikan FirmanNya kepada manusia untuk melayani dirinya, imannya, kasihnya dan kemampuannya melawan dosa. Perilaku yang dikuasai dosa mengakibatkan kejahatan semakin merajalela, dan orang yang melakukan kejahatan kecil mudah dihakum, sementara orang yang melakukan kejahatan yang besar sering bebas dari hukuman, karena tindakan manusia yang tidak benar dan karena orang yang bersaksi dusta yang terjadi pada saat pengadilan manusia. Akhir dari semua dosa, bagaimanapun bentuknya, adalah kematian. Hanya karena kasih karunia Allahlah, melalui penebusan Yesus Kristus, ada jalan keselamatan bagi setiap orang. Jalan untuk menerimanya adalah melalui iman yang dikerjakan oleh Roh Kudus, supaya pertobatan dan keampunan dosa yang disediakan melalui kematianNya dan kebangkitanNya dihayati, sehingga kita menjadi manusia baru. Iman yang demikianlah yang diperhitungkan Allah yang menjadi kebenaran manusia. Manusia hidup karena imannya walaupun dia jatuh ke dalam dosa (simul iustus et peccator), tetapi manusia yang percaya itu dipanggil Allah untuk menjadi Anak Allah dan menjadi mitra kerjaNya dalam Kerajaan Allah (1 Kor. 3:9).
+Tuhan menyampaikan FirmanNya kepada manusia untuk melayani dirinya, imannya, kasihnya dan kemampuannya melawan dosa. Perilaku yang dikuasai dosa mengakibatkan kejahatan semakin merajalela, dan orang yang melakukan kejahatan kecil mudah dihakum, sementara orang yang melakukan kejahatan yang besar sering bebas dari hukuman, karena tindakan manusia yang tidak benar dan karena orang yang bersaksi dusta yang terjadi pada saat pengadilan manusia. Akhir dari semua dosa, bagaimanapun bentuknya, adalah kematian. Hanya karena kasih karunia Allahlah, melalui penebusan Yesus Kristus, ada jalan keselamatan bagi setiap orang. Jalan untuk menerimanya adalah melalui iman yang dikerjakan oleh Roh Kudus, supaya pertobatan dan keampunan dosa yang disediakan melalui kematianNya dan kebangkitanNya dihayati, sehingga kita menjadi manusia baru. Iman yang demikianlah yang diperhitungkan Allah yang menjadi kebenaran manusia. Manusia hidup karena imannya walaupun dia jatuh ke dalam dosa (simul iustus et peccator), tetapi manusia yang percaya itu dipanggil Allah untuk menjadi Anak Allah dan menjadi mitra kerjaNya dalam Kerajaan Allah. *(1 Kor. 3:9)*
 
 Dengan ajaran ini: Kita menolak pendapat yang mengatakan bahwa manusia itu menjadi seperti budak, mesin atau hewan karena pekerjaan dan karena harta miliknya. Kita menekankan bahwa manusia adalah mitra kerja Allah dalam Kerajaan Allah.
 
@@ -473,9 +472,9 @@ Dengan ajaran ini: Kita menolak pendapat yang mengatakan bahwa manusia itu menja
 
 Kita mempercayai dan menyaksikan:
 
-Seluruh manusia adalah satu kesatuan di hadapan Allah (Kej 1:27) dan yang menerima keselamatan itu adalah sama-sama yang ditebus oleh Yesus Kristus (Gal 3:28). Keluarga Kristen di dunia ini adalah keluarga yang diikat kasih Kristus. Setiap orang yang menuruti kehendak Tuhan hidup dalam kehidupan yang saling membantu (Gal 6:2).
+Seluruh manusia adalah satu kesatuan di hadapan Allah *(Kej 1:27)* dan yang menerima keselamatan itu adalah sama-sama yang ditebus oleh Yesus Kristus *(Gal 3:28)*. Keluarga Kristen di dunia ini adalah keluarga yang diikat kasih Kristus. Setiap orang yang menuruti kehendak Tuhan hidup dalam kehidupan yang saling membantu. *(Gal 6:2)*
 
-Dengan ajaran ini: Kita menekankan bahwa hak azasi perempuan dan laki-laki sama, hak waris laki-laki dan perempuan sama, hubungan ayah dan ibu adalah mitra, demikian juga kesetaraan dalam kerja yang dapat meningkatkan kesejahteraan keluarga dalam masyarakat. (Ef 5:21; Amsal 30;10).
+Dengan ajaran ini: Kita menekankan bahwa hak azasi perempuan dan laki-laki sama, hak waris laki-laki dan perempuan sama, hubungan ayah dan ibu adalah mitra, demikian juga kesetaraan dalam kerja yang dapat meningkatkan kesejahteraan keluarga dalam masyarakat. *(Ef 5:21; Amsal 30;10)*
 
 Kita menekankan pentingnya iman dan tanggungjawab kita dalam masyarakat Indonesia yang majemuk dalam melayani orang miskin, yang sakit, yang melarat, orang asing, yang terbelakang, yang bodoh, korban ketidak-pastian hukum (penyelewengan hukum).
 
@@ -483,16 +482,15 @@ Kita menekankan kesamaan hidup dan hak azasi manusia bagi manusia yang hidup di 
 
 Dan dengan ini: Kita menentang aliran feminisme atau aliran emansipasi wanita yang ekstrim, yang mau menggeser kedudukan laki-laki menjadi kedudukan perempuan. Kita juga menentang kebiasaan yang menghindari pekerjaan tertentu dari perempuan, hanya karena dia perempuan, padahal dia mempunyai keterampilan untuk melakukan pekerjaan itu.
 
+## Konfesi 1996: Pasal 5 Tentang Kebudayaan dan Lingkungan Hidup
 
-## Konfesi 1996: Pasal 5 Tentang KEBUDAYAAN DAN LINGKUNGAN HIDUP
+**Kita mempercayai dan menyaksikan:**
 
-Kita mempercayai dan menyaksikan:
+1. Allah menciptakan manusia dengan tempat tinggalnya dan tempatnya bekerja di dunia ini (Kej 2:515). Dialah yang memiliki semuanya, yang memberikan kehidupan bagi semua yang diciptakanNya. Tempat manusia bekerja adalah daratan, laut dan langit/ruang angkasa. Allah memberikan kuasa kepada manusia untuk memelihara dunia ini dengan tanggungjawab penuh. Dia juga memberikan bahasa, alat-alat musik, kesenian dan pengetahuan kepada manusia sebagai alat manusia dan juga aturan untuk memuji Allah dan sebagai sarana untuk memelihara dan memperindah persahabatan antar manusia agar melalui kebudayaan, kerajaan Allah semakin besar. Tetapi kebudayaan yang bercampur kekafiran dan yang bertentangan dengan Firman Allah, harus ditolak.
+2. Karya Yesus Kristus adalah membebaskan manusia, segala ciptaan dan juga dunia ini (Kol 1:15-20; Roma 8:19-33).
 
-    Allah menciptakan manusia dengan tempat tinggalnya dan tempatnya bekerja di dunia ini (Kej 2:515). Dialah yang memiliki semuanya, yang memberikan kehidupan bagi semua yang diciptakanNya. Tempat manusia bekerja adalah daratan, laut dan langit/ruang angkasa. Allah memberikan kuasa kepada manusia untuk memelihara dunia ini dengan tanggungjawab penuh. Dia juga memberikan bahasa, alat-alat musik, kesenian dan pengetahuan kepada manusia sebagai alat manusia dan juga aturan untuk memuji Allah dan sebagai sarana untuk memelihara dan memperindah persahabatan antar manusia agar melalui kebudayaan, kerajaan Allah semakin besar. Tetapi kebudayaan yang bercampur kekafiran dan yang bertentangan dengan Firman Allah, harus ditolak.
-    Karya Yesus Kristus adalah membebaskan manusia, segala ciptaan dan juga dunia ini (Kol 1:15-20; Roma 8:19-33).
+**Dengan ini:**
 
-Dengan ini:
+Kita menyaksikan tanggungjawab manusia untuk melestarikan semua ciptaan Allah supaya manusia itu dapat bekerja, sehat, dan sejahtera. *(Mazm 8:4-10)*
 
-Kita menyaksikan tanggungjawab manusia untuk melestarikan semua ciptaan Allah supaya manusia itu dapat bekerja, sehat, dan sejahtera (Mazm 8:4-10).
-
-Kita menentang setiap kegiatan yang merusak lingkungan, seperti membakar dan menebang pohon di hutan atau hutan belantara (Ulangan 5:20; 19-20). Kita menentang setiap usaha yang mencemari air dan udara, juga air limbah yang mengandung racun dari pabrik-pabrik, karena tidak mempedulikan saluran air limbah dan pencemaran udara, hingga merusak air minum dan pernafasan manusia (polusi/pencemaran lingkungan), bandingkan Maz 104:1-23; Wahyu 22:1-2)
+Kita menentang setiap kegiatan yang merusak lingkungan, seperti membakar dan menebang pohon di hutan atau hutan belantara *(Ulangan 5:20; 19-20)*. Kita menentang setiap usaha yang mencemari air dan udara, juga air limbah yang mengandung racun dari pabrik-pabrik, karena tidak mempedulikan saluran air limbah dan pencemaran udara, hingga merusak air minum dan pernafasan manusia (polusi/pencemaran lingkungan), bandingkan *Maz 104:1-23; Wahyu 22:1-2*)
