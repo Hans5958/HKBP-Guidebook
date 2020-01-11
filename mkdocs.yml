@@ -18,7 +18,11 @@ nav:
   - 'Sakramen Baptisan Kudus':
     - 'Bahasa Indonesia – Sakramen Baptisan Kudus': 'sakramen-baptisan-kudus.md'
     - 'Bahasa Batak – Pandidion': 'pandidion.md'
+  - 'Sakramen Perjamuan Kudus':
+    - 'Bahasa Indonesia – Sakramen Perjamuan Kudus': 'sakramen-perjamuan-kudus.md'
+    - 'Bahasa Batak – Marulaon Na Badia': 'marulaon-na-badia.md'
+  - 'Konfesi HKBP': 'konfesi-hkbp.md'
 
 google_analytics: ['UA-49890594-3', 'auto']
-repo_name: 'GitHub'
-repo_url: 'https://github.com/Hans5958/CC-Creative-Guide'
+# repo_name: 'Hans5958/HKBP-Guidebook'
+# repo_url: 'https://github.com/Hans5958/HKBP-Guidebook'
