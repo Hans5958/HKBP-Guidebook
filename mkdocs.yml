@@ -5,7 +5,7 @@ site_description: 'Kumpulan teks yang berhubungan dengan HKBP.'
 site_author: 'Hans5958'
 site_url: 'https://hans5958.github.io/HKBP-Guidebook'
 nav:
-  - 'Main Page': 'index.md'
+  - 'Halaman Utama': 'index.md'
   - 'Sepuluh Perintah Allah':
     - 'Bahasa Indonesia – Sepuluh Perintah Allah': 'sepuluh-perintah-allah.md'
     - 'Bahasa Batak – Patik Ni Debata': 'patik-ni-debata.md'
