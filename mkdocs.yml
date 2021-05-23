@@ -1,15 +1,3 @@
-theme: 
-  name: 'material'
-  language: id
-  palette:
-  - scheme: default
-    toggle:
-      icon: material/toggle-switch-off-outline
-      name: Beralih ke mode gelap
-  - scheme: slate
-    toggle:
-      icon: material/toggle-switch
-      name: Beralih ke mode terang
 site_name: 'HKBP Guidebook'
 site_description: 'Kumpulan teks yang berhubungan dengan HKBP.'
 site_author: 'Hans5958'
@@ -36,3 +24,20 @@ nav:
 google_analytics: ['UA-49890594-3', 'auto']
 repo_name: 'Hans5958/HKBP-Guidebook'
 repo_url: 'https://github.com/Hans5958/HKBP-Guidebook'
+
+extra_css:
+  - assets/stylesheets/extra.css
+
+theme: 
+  name: 'material'
+  language: id
+  palette:
+  - scheme: default
+    toggle:
+      icon: material/toggle-switch-off-outline
+      name: Beralih ke mode gelap
+  - scheme: slate
+    toggle:
+      icon: material/toggle-switch
+      name: Beralih ke mode terang
+
