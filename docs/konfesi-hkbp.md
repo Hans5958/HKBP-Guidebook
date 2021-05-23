@@ -1,4 +1,6 @@
-# Dokumen HKBP/ Konfesi HKBP
+# Konfesi HKBP
+
+**Nama lengkap:** Pengakuan Iman (Konfesi) HKBP
 
 ## Konfesi 1951: Pendahuluan
 
