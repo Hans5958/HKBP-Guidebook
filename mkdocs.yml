@@ -21,7 +21,6 @@ nav:
     - 'Bahasa Batak – Marulaon Na Badia': 'marulaon-na-badia.md'
   - 'Konfesi HKBP': 'konfesi-hkbp.md'
 
-google_analytics: ['UA-49890594-3', 'auto']
 repo_name: 'Hans5958/HKBP-Guidebook'
 repo_url: 'https://github.com/Hans5958/HKBP-Guidebook'
 
@@ -32,12 +31,21 @@ theme:
   name: 'material'
   language: id
   palette:
-  - scheme: default
+  - media: "(prefers-color-scheme: light)"
+    scheme: default
     toggle:
-      icon: material/toggle-switch-off-outline
+      icon: material/brightness-7
       name: Beralih ke mode gelap
-  - scheme: slate
+  - media: "(prefers-color-scheme: dark)"
+    scheme: slate
     toggle:
-      icon: material/toggle-switch
+      icon: material/brightness-4
       name: Beralih ke mode terang
 
+extra:
+  analytics:
+    provider: google
+    property: G-MFXDVQ0WW7
+
+markdown_extensions:
+  - footnotes
