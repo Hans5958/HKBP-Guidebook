@@ -168,7 +168,7 @@ Hanya Alkitablah awal dan akhir semua pemikiran, pengetahuan dan usaha di dalam 
 
 **Asal dari Dosa**
 
-Iblislah asal mula dari dosa. Ia menghendaki supaya semua orang berdosa, yaitu berbalik dari Allah.[^Yoh. 8:44; Kejadian 3:1-7; Wahyu 20:10]
+Iblislah asal mula dari dosa. Ia menghendaki supaya semua orang berdosa, yaitu berbalik dari Allah.[^Yohanes 8:44; Kejadian 3:1-7; Wahyu 20:10]
 
 Jadi walaupun manusia yang pertama (Adam dan Hawa) sempurna adanya, yaitu yang dapat melakukan kemauan Allah, mereka melanggar hukum yang diberikan Allah kepadanya karena godaan Iblis, serta mereka berbalik dari Allah. Dosa ialah pelanggaran kemauan Allah.[^1 Yohanes 3:4; Yakobus 1:15]
 
@@ -376,7 +376,7 @@ Allah itu esa, itulah TUHAN ALLAH, yang tidak berawal dan tidak berakhir, yang m
 
 Dengan pengakuan ini kita menekankan bahwa Allah senantiasa dekat, campur tangan, bekerja, mengatur dan menghakimi kehidupan setiap orang, kaum, bangsa dan segala ciptaan di seluruh penjuru dunia ini.
 
-Karena itu hanya Allah saja yang disembah, yang dipercayai, yang dituruti. Kita harus lebih takut, lebih mengasihi dan lebih yakin kepadaNya dari pada kepada yang lain yang ada di bumi ini. Ajaran yang meniadakan Allah dan keberadaanNya, demikian juga yang meng-allahkan ciptaan Allah, kita tolak. Kita juga menolak segala ajaran dan kebiasaan yang menyembah iblis dan kuasa kegelapan.[^R.P.P HKBP]
+Karena itu hanya Allah saja yang disembah, yang dipercayai, yang dituruti. Kita harus lebih takut, lebih mengasihi dan lebih yakin kepadaNya dari pada kepada yang lain yang ada di bumi ini. Ajaran yang meniadakan Allah dan keberadaanNya, demikian juga yang meng-allahkan ciptaan Allah, kita tolak. Kita juga menolak segala ajaran dan kebiasaan yang menyembah iblis dan kuasa kegelapan.[^RPP HKBP]
 
 ### B. Ketritunggalan Allah
 
@@ -464,18 +464,16 @@ Kita menentang setiap kegiatan yang merusak lingkungan, seperti membakar dan men
 [^1 Petrus 3:15]: 1 Petrus 3:15
 [^Efesus 4:5]: Efesus 4:5
 [^2 Korintus 1:21-22]: 2 Korintus 1:21-22
-[^2 Timotius 3:16-17]: 2 Timotius 3:16-17
 [^Matius 16:16]: Matius 16:16
 [^Ulangan 6:4 et al]: Ulangan 6:4; Keluaran 3:14a; Kejadian 17:1; Mazmur 105:8; 1 Korintus 1:9; 2 Tesalonika 3:3; Lukas 1:37; Roma 2:33; Ulangan 1:17; Roma 2:11; 1 Korintus 1:30; Mazmur 103:8; 24:1; Yesaya 6:3; Yohanes 3:16; 1 Timotius 6:15-16
-[^Yohanes 5:19 et al]: Yohanes 5:19; 14:11; 1:1; 15, 26; 2 Korintus 13:13; Matius 28:19 
+[^Yohanes 5:19 et al]: Yohanes 5:19; 14:11; 1:1; 15:26; 2 Korintus 13:13; Matius 28:19
 [^Matius 28 et al]: Matius 28; 18; Efl 20-22; 1:7; Yohanes 3:16; Ibrani 9:14; Filemon 2:4-6
 [^Matius 23:8-10]: Matius 23:8-10
 [^Roma 8:14-17; 1 Korintus 3:16]: Roma 8:14-17; 1 Korintus 3:16
 [^1 Petrus 1:21]: 1 Petrus 1:21
-[^2 Timotius 3:16-17]: 2 Timotius 3:16-17
 [^Wahyu 22:18-19]: Wahyu 22:18-19
 [^Amsal 3:5; Mazmur 111:10]: Amsal 3:5; Mazmur 111:10
-[^Yoh. 8:44; Kejadian 3:1-7; Wahyu 20:10]: Yoh. 8:44; Kejadian 3:1-7; Wahyu 20:10
+[^Yohanes 8:44; Kejadian 3:1-7; Wahyu 20:10]: Yohanes 8:44; Kejadian 3:1-7; Wahyu 20:10
 [^1 Yohanes 3:4; Yakobus 1:15]: 1 Yohanes 3:4; Yakobus 1:15
 [^Mazmur 51:7 et al]: Mazmur 51:7; 58:4; Kejadian 8:21; Roma 5:12; 3:12; 3:23; Titus 3:5; Yohanes 3:5; Yohanes 6:63
 [^Yohanes 3:16 et al]: Yohanes 3:16; 2 Korintus 8:9; Kisah Para Rasul 4:12.
@@ -504,15 +502,12 @@ Kita menentang setiap kegiatan yang merusak lingkungan, seperti membakar dan men
 [^Matius 25]: Matius 25
 [^1 Tesalonika 5:2]: 1 Tesalonika 5:2; Matius 24:42; 44:50; Lukas 12:35-36
 [^Lukas 12:35-36]: Lukas 12:35-36
-[^Ulangan 6:4 et al]: Ulangan 6:4, Kel 3:14; Kejadian 17:1; Mazmur 105:8; 1 Korintus 1:9; 2 Tesalonika 3:3; Lukas 1:37; Roma 11:33; Ulangan 10:17; Roma 2:11; 1 Korintus 1:30; Mazmur 103:8, 24:1; Yesaya 6:3; Yohanes 3:16; 1 Timotius 6:15-16
-[^R.P.P HKBP]: bandingkan R.P.P HKBP, II 2B hal 15 dan III.1.a.c.d. hal 17-180
-[^Yohanes 5:19 et al]: Yohanes 5:19; 14:11; 1:1; 15:26; 2 Korintus 13:13; Matius 28:19
+[^RPP HKBP]: bandingkan RPP HKBP, II 2B hal 15 dan III.1.a.c.d. hal 17-180
 [^Matius 28:18 et al]: Matius 28:18; Ibrani 9:14; Filp 2:9-14; Efesus 1:20-22. 1:7; Yohanes 3:16
 [^Yeremia 11:2 et al]: Yeremia 11:2; 9:6; Yoel 3:1; Amsal 8:12-31; 1 Korintus 14:3-6, 28; Wahyu 22
 [^Roma 8:14-17 et al]: Roma 8:14-17; 1 Korintus 3:16; Titus 3:5; Kisah Para Rasul 2; Pengakuan Iman bagian ketiga dan artinya
 [^Galatia 5:22-23; Efesus 4:3-6]: Galatia 5:22-23; Efesus 4:3-6
 [^l Korintus 12:3; Yohanes 16:15; 2 Petrus 1:20-21]: l Korintus 12:3; Yohanes 16:15; 2 Petrus 1:20-21
-[^2 Timotius 3:16-17]: 2 Timotius 3:16-17
 [^Yohanes 1:14]: bandingkan Yohanes 1:14
 [^Matius 28:19-20]: Matius 28:19-20
 [^Roma 7:17]: Roma 7:17
