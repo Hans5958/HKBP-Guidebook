@@ -20,6 +20,7 @@ nav:
     - 'Bahasa Indonesia – Sakramen Perjamuan Kudus': 'sakramen-perjamuan-kudus.md'
     - 'Bahasa Batak – Marulaon Na Badia': 'marulaon-na-badia.md'
   - 'Konfesi HKBP': 'konfesi-hkbp.md'
+  - 'RPP HKBP': 'rpp-hkbp.md'
 
 repo_name: 'Hans5958/HKBP-Guidebook'
 repo_url: 'https://github.com/Hans5958/HKBP-Guidebook'
@@ -49,3 +50,6 @@ extra:
 
 markdown_extensions:
   - footnotes
+  - admonition
+  - pymdownx.details
+  - pymdownx.superfences
