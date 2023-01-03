@@ -32,6 +32,10 @@ theme:
   name: 'material'
   language: id
   palette:
+  - media: "(prefers-color-scheme)"
+    toggle:
+      icon: material/brightness-auto
+      name: Beralih ke mode terang
   - media: "(prefers-color-scheme: light)"
     scheme: default
     toggle:
@@ -41,15 +45,29 @@ theme:
     scheme: slate
     toggle:
       icon: material/brightness-4
-      name: Beralih ke mode terang
+      name: Beralih ke preferensi sistem
+  icon:
+    logo: material/library 
 
 extra:
   analytics:
     provider: google
     property: G-MFXDVQ0WW7
+  consent:
+    title: Izin kuki
+    description: >- 
+      Pada situs ini, kuki digunakan untuk mengenali kunjungan berulang dan menentukan efektivitas dari layanan yang diberikan. Dengan izin Anda, Anda dapat membantu membuat layanan ini menjadi lebih baik.
+    actions:
+      - accept
+      - reject
+      - manage 
 
 markdown_extensions:
   - footnotes
   - admonition
   - pymdownx.details
   - pymdownx.superfences
+
+plugins:
+  - offline
+  - search
