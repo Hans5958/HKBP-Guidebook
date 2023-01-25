@@ -69,5 +69,4 @@ markdown_extensions:
   - pymdownx.superfences
 
 plugins:
-  - offline
   - search
