@@ -1,22 +1,33 @@
-# Konfesi HKBP (1966, id)
+# Konfesi HKBP (1966) (Bahasa Indonesia)
 
 **Nama lengkap:** Pengakuan Iman HKBP Tahun 1996
 
 !!! warn "Peringatan"
 
-	Halaman ini masih perlu dirapikan, dan dimasukkan di sini untuk memudahkan akses terlebih dahulu.
+	Halaman ini masih perlu dirapikan, namun dimasukkan di sini untuk memudahkan akses terlebih dahulu.
 
-PENGAKUAN IMAN
+----
 
-HURIA KRISTEN BATAK PROTESTAN(HKBP) TAHUN 1996
+<div style="text-align: center; font-weight:bold">
 
-Diterbitkan Kantor Pusat HKBPPercetakan HKBP Jl. Jend. A. Yani 63 P. Siantar
+<p style="font-variant: small-caps">
+Pengakuan Iman<br />
+Huria Kristen Batak Protestan (HKBP)<br />
+Tahun 1966
+</p>
 
-PENGAKUAN IMAN HKBPA) Kuasanya
+<p style="margin-bottom: 0">Diterbitkan: Kantor Pusat HKBP</p>
+<p style="margin-top: 0">Percetakan HKBP Jl. Jend. A. Yani 63 P. Siantar</p>
+
+</div>
+
+## Kuasanya
 
 1. Kuasa (otoritas) Pengakuan Iman berdasarkan kuasa Alkitab, karena Allahlah sumber dari kuasa Alkitab.2. Allah memakai manusia menjadi alatNya untuk menulis Kitab Suci (2 Tim 3:16a), Allah jugalah yangmemakai hambaNya, pelayan di Gereja, menyusun Pengakuan Iman dari Gereja itu, berdasarkan kebenaranyang terkandung dalam Alkitab (2 Kor 1:21-22). Walaupun Pengakuan Iman itu berkuasa, ia tunduk kepadakuasa Alkitab karena Alkitab itulah sumber dari ajaran yang benar untuk disaksikan. Kitab Suci bukanlahperkataan manusia tetapi firman Allah (2 Tim 3:16-17).3. Di dalam kebenaran yang dari Allah yang dinyatakan dalam Kitab Suci, Pengakuan Iman mempunyai kuasamenyatakan kepribadian dan rencana Allah Tritunggal, menyatakan keselamatan yang dilakukan oleh YesusKristus, menyatakan keberadaan Gereja di dunia ini dan menyatakan harta rohani yang perlu diketahui olehorang percaya ( l Tes 2: l 3).4. Pengakuan Iman mempunyai kuasa melahirkan meneguhkan iman Gereja, dan juga mempunyai kekuatanmelawan dan menolak segala ajaran yang menyimpang yang lahir atas kehendak manusia.5. Seluruh warga jemaat harus dengan sungguh-sungguh tunduk terhadap seluruh yang diajarkan olehPengakuan Iman; hendaknya dipelajari dalam kerendahan hati dan kasih, karena semua ajaran itu berasal dariYang Mahatinggi.
 
-B). Lahirnya Pengaknan Iman dan Pemakaiannya1. Pengakuan Iman HKBP adalah merupakan satu kesatuan dengan Pengakuan Iman gereja-gerejayang pertama, yang dirumuskan pada tiga waktu yang berbeda-beda, yaitu:a. Pengakuan Iman Apostolicumb. Pengakuan Iman Niceanumc. Pengakuan Iman AthanasianumWalaupun perumusannya tidak sama, isi dan tujuan Pengakuan Iman itu sama.2. Pengakuan Iman ini adalah kesimpulan dari berita dan ajaran Kitab Suci, itulah menjadi isi imanyang kita hayati dan dasar dari pengharapan kita dalam hidup sekarang dan yang akan datang.3. Pengakuan Iman ini merupakan suluh, penuntun dan dasar dari segenap pekerjaan, pengajarandan khotbah di HKBP, karena hanya ajaran yang benarlah yang dapat menggarami dan menerangihidup kita di dunia ini.4. Pengakuan Iman ini adalah merupakan dasar bagi HKBP dalam menyusun Anggaran Dasarnya,dan bersaksi bersama-sama dengan gereja-gereja di dunia ini.5. Pengakuan Iman ini adalah dasar bagi HKBP melawan dan menolak segala ajaran yangbertentangan dengan Firman Allah.6. Dan Pengakuan Iman ini jugalah yang menunjukkan jati-diri HKBP dalam seluruh persaudaraanoikumenis, dalam kesaksian dan keberadaannya di dunia ini.
+## Lahirnya Pengaknan Iman dan Pemakaiannya
+
+1. Pengakuan Iman HKBP adalah merupakan satu kesatuan dengan Pengakuan Iman gereja-gerejayang pertama, yang dirumuskan pada tiga waktu yang berbeda-beda, yaitu:a. Pengakuan Iman Apostolicumb. Pengakuan Iman Niceanumc. Pengakuan Iman AthanasianumWalaupun perumusannya tidak sama, isi dan tujuan Pengakuan Iman itu sama.2. Pengakuan Iman ini adalah kesimpulan dari berita dan ajaran Kitab Suci, itulah menjadi isi imanyang kita hayati dan dasar dari pengharapan kita dalam hidup sekarang dan yang akan datang.3. Pengakuan Iman ini merupakan suluh, penuntun dan dasar dari segenap pekerjaan, pengajarandan khotbah di HKBP, karena hanya ajaran yang benarlah yang dapat menggarami dan menerangihidup kita di dunia ini.4. Pengakuan Iman ini adalah merupakan dasar bagi HKBP dalam menyusun Anggaran Dasarnya,dan bersaksi bersama-sama dengan gereja-gereja di dunia ini.5. Pengakuan Iman ini adalah dasar bagi HKBP melawan dan menolak segala ajaran yangbertentangan dengan Firman Allah.6. Dan Pengakuan Iman ini jugalah yang menunjukkan jati-diri HKBP dalam seluruh persaudaraanoikumenis, dalam kesaksian dan keberadaannya di dunia ini.
 
 HKBP adalah Gereja yang bersaksi. Yang disaksikan adalah imannya yang didasarkan pada Kitab Suci, untukdihayati segenap warganya, untuk diwartakan kepada dunia ini, dan yang menjadi pegangan menghadapi ajaranyang tidak benar yang lahir di dalam gereja itu sendiri serta ajaran yang ada di sekitarnya.
 
@@ -46,11 +57,11 @@ Pengakuan Iman itu artinya tetap sama, yaitu Pengakuan Iman yang mencakup semua 
 
 1. Dihayati warga Gereja dalam menyatakan "... berdiri dan teguh dalam iman, dan tidak akan bergeser daripengharapan..." Kol. 1:23: "... tetap berpegang pada kebenaran yang telah engkau terima dan engkau yakini " (2Tim 3:14). "Engkau akan menjadi seorang pelayan Kristus Yesus yang baik, terdidik dalam soal-soal pokokiman kita dan dalam ajaran sehat yang telah kau ikuti selama ini" (1 Tim 4:6).2. Disaksikan di dunia ini, "Beritakanlah firman, siap sedialah baik atau tidak baik waktunya..." (2 Tim4:2). "Pergilah, jadikanlah semua bangsa..." (Mat 28:19).3. Pegangan terhadap semua orang yang mencobai dan musuh iman. "Siap sedialah pada segalawaktu untuk memberi pertanggungan-jawab kepada tiap-tiap orang yang meminta pertanggungan-jawab dari padamu tentang pengharapan yang ada padamu. . . " (1 Pet 3:15).4. Diwarisi oleh angkatan yang berikut dalam gereja, dan menghayati kesatuan iman bersamaangkatan yang terdahulu. "Haruslah engkau mengajarkannya berulang-ulang kepada anak-anakmudan membicarakannya..." (Ulangan 6:7).
 
-Pasal 1TENTANG ALLAH
+## Pasal 1: Tentang Allah
 
 A). Kepribadian Allah
 
-Kita mempercayai dan menyaksikan :Allah itu esa, itulah TUHAN ALLAH, yang tidak berawal dan tidak berakhir, yang mahakuasa, yangkeberadaanNya tidak terselami, yang tidak berobah, yang mahakudus, pemarah terhadap orang yang tidaktunduk kepada FirmanNya, yang mahatahu, yang hatinya benar, setia, yang menyatakan diriNya, penciptasegala sesuatu, yang memenuhi langit dan bumi, yang memelihara, yang pemurah, sumber kehidupan, berkatdan kebahagiaan, yang memerintah. Raja dari segala raja dan Tuhan dari segalanya, mahapemurah, pengasih,Pengampun, Juruselamat, yang hakumnya benar, yang menang, yang membangkitkan, Pemersatu, yangGembala, Pembela, sumber dari segala pengetahuan. Dia jugalah yang menguasai sejarah dan kematian(Ulangan 6:4, Kel 3:14; Kej 17:1; Mazm 105:8; 1 Kor 1:9; 2 Tes 3:3; Luk 1:37; Roma 11:33; Ulangan 10:17;Roma 2:11 1 Kor 1:30; Mazm 103:8, 24:1; Yes 6:3; Yoh 3:16; 1 Tim 6:15-16).
+**Kita mempercayai dan menyaksikan:** Allah itu esa, itulah TUHAN ALLAH, yang tidak berawal dan tidak berakhir, yang mahakuasa, yangkeberadaanNya tidak terselami, yang tidak berobah, yang mahakudus, pemarah terhadap orang yang tidaktunduk kepada FirmanNya, yang mahatahu, yang hatinya benar, setia, yang menyatakan diriNya, penciptasegala sesuatu, yang memenuhi langit dan bumi, yang memelihara, yang pemurah, sumber kehidupan, berkatdan kebahagiaan, yang memerintah. Raja dari segala raja dan Tuhan dari segalanya, mahapemurah, pengasih,Pengampun, Juruselamat, yang hakumnya benar, yang menang, yang membangkitkan, Pemersatu, yangGembala, Pembela, sumber dari segala pengetahuan. Dia jugalah yang menguasai sejarah dan kematian(Ulangan 6:4, Kel 3:14; Kej 17:1; Mazm 105:8; 1 Kor 1:9; 2 Tes 3:3; Luk 1:37; Roma 11:33; Ulangan 10:17;Roma 2:11 1 Kor 1:30; Mazm 103:8, 24:1; Yes 6:3; Yoh 3:16; 1 Tim 6:15-16).
 
 Dengan pengakuan ini kita menekankan bahwa Allah senantiasa dekat, campur tangan, bekerja, mengatur danmenghakimi kehidupan setiap orang, kaum, bangsa dan segala ciptaan di seluruh penjuru dunia ini.
 
@@ -58,7 +69,7 @@ Karena itu hanya Allah saja yang disembah, yang dipercayai, yang dituruti. Kita 
 
 B) Ketritunggalan Allah
 
-Kita mempercayai dan menyaksikan :Allah itu esa dan di dalam penyataanNya yang Tritunggal, yaitu Allah Bapa, Allah Anak dan Allah RohKudus, yang tidak berawal dan tidak berakhir (Yoh 5:19; 14:11; 1:1; 15:26; 2 Kor 13:13; Mat 28:19).Berdasarkan ini kita menolak ajaran Triteisme yang mengatakan Allah orang Kristen itu ada tiga.
+**Kita mempercayai dan menyaksikan:** Allah itu esa dan di dalam penyataanNya yang Tritunggal, yaitu Allah Bapa, Allah Anak dan Allah RohKudus, yang tidak berawal dan tidak berakhir (Yoh 5:19; 14:11; 1:1; 15:26; 2 Kor 13:13; Mat 28:19).Berdasarkan ini kita menolak ajaran Triteisme yang mengatakan Allah orang Kristen itu ada tiga.
 
 1. Allah Bapa Allah Bapalah yang menciptakan, memelihara dan memerintah segala yang kelihatan dan yang tidak kelihatan,dari awal hingga selama-lamanya. Allah Bapa menyatakan diriNya melalui Yesus Kristus, AnakNya yangtunggal itu, Juruselamat manusia dan Dia memeteraikan keselamatan itu melalui rohNya, Roh Kudus, dengandemikian kita dimampukan berseru "Ya Bapa" kepadaNya. Dengan pernyataan itu kita menekankan besarnyakasih Allah Bapa, yang menyediakan semua yang diperlukan manusia dalam hidupnya, melalui cara yangdimengerti dan tidak dimengerti oleh manusia. Karena itu kita menolak ajaran yang menyangkali penciptaanAllah atas segala sesuatu, demikian juga dengan ajaran fatalisme (takdir, suratan, nasib) yang menjadikanmanusia pasif saja, dan yang mengamati letak bintang dan yang menafsirkan suratan tangan.
 
@@ -74,7 +85,7 @@ Ajaran yang mengatakan Roh Kudus sama dengan roh-roh yang lain yang ada di dunia
 
 Demikian juga ajaran yang mengatakan bahwa orang yang dipenuhi Roh tidak perlu bertobat. Kita juga menolakbahasa asing (glosolalia) yang tidak dapat dimengerti orang yang menjadi pemicu keributan dalam persekutuanorang percaya. Semua karya besar yang tidak memuliakan Allah, bukanlah berasal dari Roh Kudus. Bukankarya besar yang menjadi ukuran iman, maka itu harus ditolak.
 
-Pasal 2FIRMAN ALLAH
+## Pasal 2: Firman Allah
 
 Kita mengakui dan menyaksikan :Alkitab, yaitu Perjanjian Lama dan Perjanjian Baru adalah sungguh-sungguh Firman Allah. Alkitab menyatakanrencana Allah untuk menyelamatkan manusia yang pusatnya adalah Yesus Kristus. Kita mengerti Firman Allahmelalui bimbingan Roh Kudus (l Kor 12:3; Yoh 16:15; 2 Petr 1 :20-21). Segala tulisan yang diilhamkan Allah memang bermanfaat untuk mengajar, untuk menyatakan kesalahan, untukmemperbaiki kelakuan dan untuk mendidik orang dalam kebenaran. Dengan demikian tiap-tiap manusiakepunyaan Allah diperlengkapi untuk setiap perbuatan baik (2 Tim 3:16-17).
 
@@ -84,7 +95,7 @@ Kita menekankan bahwa bukan hanya orang yang ditahbiskan yang menerima tugas, te
 
 Kita menentang tindakan yang memasukkan Alkitab ke dalam peti orang mati karena berkeyakinan bahwadengan cara itu dia dapat masuk ke dalam Kerajaan Allah. Kita menentang tindakan pemakaian Alkitab untukmemilih hari yang baik dan untuk mengetahui nasibnya. Bila diperlukan, pada saat menerima jabatan barudalam pemerintahan Alkitab dapat dipakai sebagai perlengkapan untuk menyatakan janjinya. Kita menolakpemakaian Alkitab untuk bersumpah.
 
-Pasal 3MANUSIA
+## Pasal 3: Manusia
 
 Manusia adalah ciptaan Allah, laki-laki dan perempuan, menurut gambarNya, sama dengan perangaiNya (ImagoDei), dengan martabat yang sama, dan kepada mereka diberikan kuasa untuk menguasai, memelihara danmengolah seluruh ciptaanNya yang ada di dunia ini. Manusia diciptakanNya dalam kebebasan dantanggungjawab untak melayani Allah dan seluruh ciptaanNya.
 
@@ -94,9 +105,9 @@ Tuhan menyampaikan FirmanNya kepada manusia untuk melayani dirinya, imannya, kas
 
 Dengan ajaran ini : Kita menolak pendapat yang mengatakan bahwa manusia itu menjadi seperti budak, mesinatau hewan karena pekerjaan dan karena harta miliknya. Kita menekankan bahwa manusia adalah mitra kerjaAllah dalam Kerajaan Allah.
 
-Pasal 4MASYARAKAT
+## Pasal 4: Masyarakat
 
-Kita mempercayai dan menyaksikan :Seluruh manusia adalah satu kesatuan di hadapan Allah (Kej 1:27) dan yang menerima keselamatanitu adalah sama-sama yang ditebus oleh Yesus Kristus (Gal 3:28). Keluarga Kristen di dunia ini adalah keluarga yang diikat kasih Kristus. Setiap orang yang menuruti kehendak Tuhan hidup dalamkehidupan yang saling membantu (Gal 6:2).
+**Kita mempercayai dan menyaksikan:** Seluruh manusia adalah satu kesatuan di hadapan Allah (Kej 1:27) dan yang menerima keselamatanitu adalah sama-sama yang ditebus oleh Yesus Kristus (Gal 3:28). Keluarga Kristen di dunia ini adalah keluarga yang diikat kasih Kristus. Setiap orang yang menuruti kehendak Tuhan hidup dalamkehidupan yang saling membantu (Gal 6:2).
 
 Dengan ajaran ini : Kita menekankan bahwa hak azasi perempuan dan laki-laki sama, hak warislaki-laki dan perempuan sama, hubungan ayah dan ibu adalah mitra, demikian juga kesetaraan dalamkerja yang dapat meningkatkan kesejahteraan keluarga dalam masyarakat. (Ef 5:21; Amsal 30;10).
 
@@ -106,9 +117,9 @@ Kita menekankan kesamaan hidup dan hak azasi manusia bagi manusia yang hidup di 
 
 Dan dengan ini : Kita menentang aliran feminisme atau aliran emansipasi wanita yang ekstrim, yangmau menggeser kedudukan laki-laki menjadi kedudukan perempuan. Kita juga menentang kebiasaanyang menghindari pekerjaan tertentu dari perempuan, hanya karena dia perempuan, padahal diamempunyai keterampilan untuk melakukan pekerjaan itu.
 
-Pasal 5KEBUDAYAAN DAN LINGKUNGAN HIDUP
+## Pasal 5: Kebudayaan dan Lingkungan Hidup
 
-Kita mempercayai dan' menyaksikan :
+**Kita mempercayai dan menyaksikan:**
 
 1. Allah menciptakan manusia dengan tempat tinggalnya dan tempatnya bekerja di dunia ini (Kej2:515). Dialah yang memiliki semuanya, yang memberikan kehidupan bagi semua yangdiciptakanNya. Tempat manusia bekerja adalah daratan, laut dan langit/ruang angkasa. Allahmemberikan kuasa kepada manusia untuk memelihara dunia ini dengan tanggungjawab penuh. Diajuga memberikan bahasa, alat-alat musik, kesenian dan pengetahuan kepada manusia sebagai alatmanusia dan juga aturan untuk memuji Allah dan sebagai sarana untuk memelihara danmemperindah persahabatan antar manusia agar melalui kebudayaan, kerajaan Allah semakin besar.Tetapi kebudayaan yang bercampur kekafiran dan yang bertentangan dengan Firman Allah, harusditolak.
 
@@ -118,13 +129,13 @@ Dengan ini: Kita menyaksikan tanggungjawab manusia untuk melestarikan semua cipt
 
 Kita menentang setiap kegiatan yang merusak lingkungan, seperti membakar dan menebang pohon di hutanatau hutan belantara (Ulangan 5: 20 ;19 - 20). Kita menentang setiap usaha yang mencemari air dan udara, jugaair limbah yang mengandung racun dari pabrik-pabrik, karena tidak mempedulikan saluran air limbah danpencemaran udara, hingga merusak air minum dan pernafasan manusia (polusi/pencemaran lingkungan),bandingkan Maz 104: 1 - 23; Wahyu 22: 1 - 2)
 
-Pasal 6KESELAMATAN
+## Pasal 6: Keselamatan
 
-Kita mempercayai dan menyaksikan :Keselamatan adalah karya Allah, yaitu kelepasan dari dosa, dari kuasa iblis dan maut, dan dari aneka ragamkuasa yang bertentangan dengan Firman Allah. Karena dengan karunia dan kasih Allahlah keselamatandilaksanakan, yaitu dengan penebusan AnakNya yang tunggal, Tuhan Yesus Kristus, yang mati di kayu salib,yang turun ke dalam maut setelah dikuburkan dan yang bangkit dari kematian pada hari ketiga. Jalan untukmenerima keselamatan itu adalah melalui iman yang dilahirkan oleh Roh Kudus dan iman itulah yangdiperhitungkan Allah sebagai kebenaran manusia. Keselamatan itu adalah kemuliaan Allah dan kebahagiaanmanusia. Orang percaya telah dibebaskan, walaupun dia masih mengalami pergumulan di dunia ini. Karunia Allah senantiasa melepaskan orang percaya dari aneka ragam bahaya dalam kehidupan sehari-hari, secarajasmani maupun rohani, baik perorangan maupun kelompok.
+**Kita mempercayai dan menyaksikan:** Keselamatan adalah karya Allah, yaitu kelepasan dari dosa, dari kuasa iblis dan maut, dan dari aneka ragamkuasa yang bertentangan dengan Firman Allah. Karena dengan karunia dan kasih Allahlah keselamatandilaksanakan, yaitu dengan penebusan AnakNya yang tunggal, Tuhan Yesus Kristus, yang mati di kayu salib,yang turun ke dalam maut setelah dikuburkan dan yang bangkit dari kematian pada hari ketiga. Jalan untukmenerima keselamatan itu adalah melalui iman yang dilahirkan oleh Roh Kudus dan iman itulah yangdiperhitungkan Allah sebagai kebenaran manusia. Keselamatan itu adalah kemuliaan Allah dan kebahagiaanmanusia. Orang percaya telah dibebaskan, walaupun dia masih mengalami pergumulan di dunia ini. Karunia Allah senantiasa melepaskan orang percaya dari aneka ragam bahaya dalam kehidupan sehari-hari, secarajasmani maupun rohani, baik perorangan maupun kelompok.
 
 Penampakan dari keselamatan itu dalam kehidupan orang percaya di dunia ini ialah kehidupan yang kudus, yangmenghasilkan buah-buah Roh (1 Yoh 3: 16; 2 Kor 8: 9; K. Rasul 4: 12; Gal 5: 22). Dengan ajaran ini kitamenekankan tidak ada keselamatan selain dari keselamatan yang dilakukan oleh Yesus Kristus dan hanya YesusKristuslah yang empunya orang yang diselamatkanNya. Iblis maupun kuasa yang lain dari kekuasaan Kristustidak berkuasa merampasnya (Roma 8:38-39). Karena itu kita menolak ajaran yang mengatakan, bahwa manusiadapat menyelamatkan dirinya dari kuasa dosa, dari kuasa iblis dan dari kematian dengan cara meninggalkankeramaian di dunia ini. Kita juga menolak ajaran yang mengatakan bahwa usaha manusialah yang menentukankeselamatannya.
 
-Pasal 7GEREJA
+## Pasal 7: Gereja
 
 Kita mempercayei dan menyaksikan:
 
@@ -148,9 +159,9 @@ a. Kalau Kabar Baik dikhotbahkan dan diajarkan dengan murni.b. Kalau sakramen ya
 
 Dengan ajaran ini kita menekankan bahwa Allah menyatakan diriNya dan juga yang melakukan pendamaian didalam Yesus Kristus melalui Kabar Baik dan Sakramen yang dua itu.
 
-Pasal 8SAKRAMEN
+## Pasal 8: Sakramen
 
-Kita mempercayai dan menyaksikan :Di Gereja Protestan hanya ada dua sakramen, yaitu Baptisan Kudus dan Perjamuan Kudus. Itulah yangditetapkan oleh Tuhan Yesus kepada Gereja untuk memberikan tanda yang nyata akan kasih karuniaNya yangtidak kelihatan, yaitu keampunan dosa, keselamatan, pendamaian, kehidupan dan kebahagiaan, yang dihayatimelalui iman dalam karya Roh Kudus (Mat 28:19; Mrk 16:15-16;Mrk 14;Luk22; 1 Kor 11).
+**Kita mempercayai dan menyaksikan:** Di Gereja Protestan hanya ada dua sakramen, yaitu Baptisan Kudus dan Perjamuan Kudus. Itulah yangditetapkan oleh Tuhan Yesus kepada Gereja untuk memberikan tanda yang nyata akan kasih karuniaNya yangtidak kelihatan, yaitu keampunan dosa, keselamatan, pendamaian, kehidupan dan kebahagiaan, yang dihayatimelalui iman dalam karya Roh Kudus (Mat 28:19; Mrk 16:15-16;Mrk 14;Luk22; 1 Kor 11).
 
 A) Baptisan Kudus
 
@@ -166,7 +177,7 @@ Dengan ini kita menganjurkan supaya kita lebih sering ikut-serta dalam Perjamuan
 
 Kita menolak kebiasaan beberapa Gereja yang hanya memberikan roti kepada warga Gereja, tanpa anggur.Demikian juga pendapat yang mengatakan ada lebih dari dua sakramen.
 
-Pasal 9MAJELIS JEMAAT
+## Pasal 9: Majelis Jemaat
 
 Kita mempercayai dan meyaksikan :Semua orang Kristen, laki-laki atau perempuan, terpanggil untuk menjadi saksi Kristus di dunia ini, selakukaum yang terpilih, imamat yang rajani, bangsa yang kudus, kaum yang dipimpin oleh Kristus untukmemberitakan pendamaian yang dilakukan Kristus, yang memanggil Gereja dari kegelapan ke terang. Jabatangerejawi semua orang Kristen adalah jabatan pelayanan.
 
@@ -188,19 +199,19 @@ Mereka yang ditahbiskan harus berani menyatakan kebenaran Yesus Kristus di hadap
 
 Kita menolak sikap dan perilaku pelayan yang cinta akan harta emas karena pelayanan di dalam Gereja adalahpengorbanan diri.
 
-Pasal 10TATA GEREJA
+## Pasal 10: Tata Gereja
 
-Kita mempercayai dan menyaksikan :Gereja harus mempunyai Tata Gereja yang berdasarkan Firman Allah, karena Tata Gereja itu adalah satu alatuntuk mengatur, memberikan ketenangan dan memelihara Gereja. Dan dengan Tata Gereja itulah Gereja dibantuagar tetap berdiri di atas dasar yang satu itu, yaitu Yesus Kristus. Tata Gereja itu perlu diperbaharui sesuaidengan perobahan zaman (1 Kor3:11; 14: 33;1 Petr 2:4-6).
+**Kita mempercayai dan menyaksikan:** Gereja harus mempunyai Tata Gereja yang berdasarkan Firman Allah, karena Tata Gereja itu adalah satu alatuntuk mengatur, memberikan ketenangan dan memelihara Gereja. Dan dengan Tata Gereja itulah Gereja dibantuagar tetap berdiri di atas dasar yang satu itu, yaitu Yesus Kristus. Tata Gereja itu perlu diperbaharui sesuaidengan perobahan zaman (1 Kor3:11; 14: 33;1 Petr 2:4-6).
 
 Dengan ajaran ini kita menekankan perlunya memberlakukan penggembalaan dan hukum siasat Gereja. Kitamenolak pandangan yang menyamakan Tata Gereja dengan Firman Allah, demikian juga pandangan yangmeniadakan perlunya Tata Gereja.
 
-Pasal 11HARI MINGGU
+## Pasal 11: Hari Minggu
 
-Kita mempercayai dan menyaksikan:Hari Minggu adalah hari sukacita, merayakan dan mengingat hari kebangkitan Tuhan Yesus dan turunnya RohKudus. Dan dengan merayakan hari Minggu itu kita mengingat pekerjaan penciptaan Allah sejak pada mulanyasampai hari ini. Setelah Gereja ada, hari Minggu dirayakan yaitu pada hari yang ketiga setelah kematian TuhanYesus. Dan hari Minggu itulah yang dikuduskan oleh orang Kristen sesuai dengan tuntutan hukum yangkeempat (Yoh 20:1926; 1 Kor 16:2; K Rasul 20:7; Wahyu 1:10).
+**Kita mempercayai dan menyaksikan:** Hari Minggu adalah hari sukacita, merayakan dan mengingat hari kebangkitan Tuhan Yesus dan turunnya RohKudus. Dan dengan merayakan hari Minggu itu kita mengingat pekerjaan penciptaan Allah sejak pada mulanyasampai hari ini. Setelah Gereja ada, hari Minggu dirayakan yaitu pada hari yang ketiga setelah kematian TuhanYesus. Dan hari Minggu itulah yang dikuduskan oleh orang Kristen sesuai dengan tuntutan hukum yangkeempat (Yoh 20:1926; 1 Kor 16:2; K Rasul 20:7; Wahyu 1:10).
 
 Dengan ajaran ini kita menekankan supaya semua orang Kristen datang menghadiri persekutuan orang Kristenpada hari Minggu. Dengan ajaran ini kita menolak peniadaan kekhususan dan kekudusan hari Minggu.
 
-Pasal 12PERBUATAN DAN IMAN
+## Pasal 12: Perbuatan dan Iman
 
 Kita mempercayni dan menyaksikan: Pada mulanya, sebelum manusia jatuh ke dalam dosa, Allah mengangkat manusia itu menjadi pengolah danpemelihara dunia ini. Pekerjaan manusia berdasar pada kepercayaan bahwa Allah terus menerus bekerja (Yoh 5:17). Melalui pekerjaan itu berkat Allah mengalir deras kepada manusia dan kepada seluruh ciptaan,menghasilkan buah bagi manusia dan bagi sekitarnya. Kepercayaan kepada Yesus Kristus harus menghasilkanpekerjaan baik. Seseorang adalah sesat kalau mengharapkan memperoleh kebenaran, kehidupan, ketenangan danberkat karena melakukan pekerjaan baik (Ef 2: 8; Roma 5: 1).
 
@@ -208,9 +219,9 @@ Dengan ajaran ini kita menekankan agar manusia rajin dan terampil bekerja, dan h
 
 Dengan ajaran ini kita menolak pekerjaan yang tidak dikehendaki Allah, dan supaya warga jemaat setia, dapatdipercaya dan bertangggungjawab melakukan hukum dan Firman Allah baik atau tidak baik waktunya, terutamapada saat terjadi pencobaan misalnya korupsi, judi, pencurian, penyalah-gunaan wewenang, mencari keuntunganyang tidak wajar, menjual dengan harga yang sangat murah dengan maksud merugikan pihak lain.
 
-Pasal 13TENTANG PEMERINTAH
+## Pasal 13: Tentang Pemerintahan
 
-Kita mempercayai dan menyaksikan:Pemerintah yang berwibawa datang dari Allah untuk mewujudkan keadilan, melindungi, memelihara,melawan kejahatan dan menyediakan yang perlu bagi warga negara dan kehidupan umat.
+**Kita mempercayai dan menyaksikan:** Pemerintah yang berwibawa datang dari Allah untuk mewujudkan keadilan, melindungi, memelihara,melawan kejahatan dan menyediakan yang perlu bagi warga negara dan kehidupan umat.
 
 Yesus Kristuslah dasar dari Gereja yang hidup di dunia ini, dan kita juga menyaksikan bahwa Allahlahyang memberikan keselamatan di dalam Yesus Kristus.
 
@@ -222,9 +233,9 @@ Kita menekankan, Yesus Kristus, Panglima Gereja, sebagai jalan kita untuk memint
 
 Kita menekankan bahwa kita turut serta menegakkan dan memelihara kebenaran, demikian juga turutmenikmati hasil pembangunan nasional. Gereja terpanggil mendoakan pemerintah dan aparatnya (1Tim 2: 1 - 2; Roma 13: 1 - 7).
 
-Pasal 14MAKANAN
+## Pasal 14: Makanan
 
-Kita mempercayai dan menyaksikan:Semua yang diciptakan Allah adalah baik dan kita tidak memantangkan setiap makanan yangditerima asal dengan hati yang penuh syukur dan terima kasih, sebab apa saja yang diterima menjadisuci oleh karena Firman Allah dan doa.
+**Kita mempercayai dan menyaksikan:** Semua yang diciptakan Allah adalah baik dan kita tidak memantangkan setiap makanan yangditerima asal dengan hati yang penuh syukur dan terima kasih, sebab apa saja yang diterima menjadisuci oleh karena Firman Allah dan doa.
 
 Manusia tidak menjadi kudus karena mengindahkan bermacam-macam pantangan terhadapmakanan. Karena imanlah yang menerima kekudusan dari Allah.
 
@@ -232,7 +243,9 @@ Tetapi kita perlu menjaga agar makanan tidak berlebihan bagi setiap orang di rum
 
 Kita harus melawan sifat yang dikuasai oleh makanan, minuman dan rokok (1 Tim 4 :4 - 5; Mat 15;Roma 14:17; K. Rasul 15; Kol2: 16-23).
 
-Pasal 15PERINGATAN AKAN ORANG YANG MENINGGAL Kita mempercayai dan menyaksikan :Kematian adalah akhir dari hidup manusia di dunia ini, dia berhenti dari segala pekerjaannya. Ada keselamatanbagi orang yang percaya. Yesus Kristus yang telah bangkit itulah yang membangkitkan orang dari kematian,Dialah Tuhan dari orang yang hidup dan yang mati (Roma 14: 7 - 9).
+## Pasal 15: Perngatan akan Orang yang Meninggal
+
+**Kita mempercayai dan menyaksikan:** Kematian adalah akhir dari hidup manusia di dunia ini, dia berhenti dari segala pekerjaannya. Ada keselamatanbagi orang yang percaya. Yesus Kristus yang telah bangkit itulah yang membangkitkan orang dari kematian,Dialah Tuhan dari orang yang hidup dan yang mati (Roma 14: 7 - 9).
 
 Berbahagialah orang yang mati di dalam Tuhan yang setia sampai akhir (Why 14: 13).
 
@@ -246,9 +259,9 @@ Dan dengan ajaran ini :Kita menolak semua bentuk ajaran agama kekafiran terutama
 
 Pada waktu peringatan orang yang meninggal, baiklah kita mengingat untuk mengucap syukur kepada Allah,akan segala perbuatannya yang baik pada waktu masih hidup, tetapi tidak untuk memohon berkat dan tandakesurupan dari yang telah meninggal itu.
 
-PASAL 16KEDATANGAN TUHAN
+## Pasal 16: Kedatangan Tuhan
 
-Kita mempercayai dan menyaksikan :
+**Kita mempercayai dan menyaksikan:** 
 
 Tuhan Yesus akan datang kedua-kalinya untuk menyatakan Yerusalem yang baru, sebagai penampakankeagungan dan kemuliaan Allah. Saat itulah dunia ini akan berakhir. Tidak ada seorang pun yang tahu kapanwaktuNya akan datang. Oleh sebab itu setiap orang percaya harus siaga dan berjaga-jaga di dalam kesitaan danpengharapan akan kedatanganNya, karena saat itulah berlaku hukuman dan kasih karuniaNya (Yoh 5: 28; 1 Tes4: 16; Mat 24: 3,42; Lukas 21 : 28; Mat 25; Why 20: 11-15; 1 kor 15:52; 2 kor 5: 10; Yes 60: 10-16).
 
@@ -256,9 +269,9 @@ Dengan ajaran ini, hendaknya kita sungguh-sungguh memakai waktu dalam kehidupan 
 
 Kita menolak kebiasaan yang mencoba menghitung dan menetukan hari kedatangan Tuhan kedua-kalinya. Demikian juga dengan pandangan yang mengatakan tidak ada akhir dari dunia ini.
 
-PASAL 17TENTANG MALAIKAT
+## Pasal 17: Tentang Malaikat
 
-Kita mempercayai dan menyaksikan :
+**Kita mempercayai dan menyaksikan:** 
 
 Malaikat-malaikat adalah ciptaan Allah, yang taat kepada Dia, dan roh pelayan, yang diutus untuk membantupara pewaris keselamatan. Ibr 1: 14; kej. 22: 11-12; Luk. 1: 11,26; 2: 9; Mat 28: 2; Yud 9; Why 12: 7-9; 14:6;20: 1-3; 22: 18; Mal 3: 1. 
 

@@ -1,6 +1,21 @@
-# Konfesi HKBP (1951, bbc)
+# Konfesi HKBP (1951) (Bahasa Batak)
 
-**Nama lengkap:** Panindangion Harporseaon HKBP Tahun 1951
+**Nama lengkap:** Panindangion Harporseaon ni HKBP Tahun 1951
+
+----
+
+<div style="text-align: center; font-weight:bold">
+
+<p style="font-variant: small-caps">
+Panindangion Harporseaon<br />
+Huria Kristen Batak Protestan (HKBP)<br />
+Tahun 1951
+</p>
+
+<p style="margin-bottom: 0">Pinaruar ni Kantor Pusat HKBP</p>
+<p style="margin-top: 0">Percetakan HKBP Jl. Jend. A. Yani 63 P. Siantar</p>
+
+</div>
 
 ## Hata Patujulo
 

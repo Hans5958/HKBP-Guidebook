@@ -6,7 +6,12 @@
 
     Isi dari halaman ini telah disebar oleh berbagai sumber dan berasal dari sebuah buku yang dirilis pada 2000. Isi dari buku ini memiliki Bahasa Indonesia, Bahasa Batak, dan Bahasa Inggris dan kedua konfesi di dalam satu halaman. Namun, isinya terpotong sampai Pasal 5 di Konfesi 1966.
 
-    Pengembangan lebih lanjut akan dilakukan dengan membuat halaman-halaman baru yang berisi kedua konfesi dalam Bahasa Indonesia dan Bahasa Batak. Harap maklum.
+    Pengembangan lebih lanjut akan dilakukan dengan membuat halaman-halaman baru yang berisi Konfesi 1951 dan Konfesi 1956 secara terpisah. Harap maklum.
+
+    - [Konfesi 1951 (Bahasa Indonesia)](../1951/id.md)
+    - [Konfesi 1951 (Bahasa Batak)](../1951/bbc.md)
+    - [Konfesi 1966 (Bahasa Indonesia)](../1966/id.md)
+    - [Konfesi 1966 (Bahasa Batak)](../1966/bbc.md)
 
 ## Konfesi 1951: Pendahuluan
 

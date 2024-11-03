@@ -1,6 +1,21 @@
-# Konfesi HKBP (1951, id)
+# Konfesi HKBP (1951) (Bahasa Indonesia)
 
 **Nama lengkap:** Pengakuan Iman HKBP Tahun 1951
+
+----
+
+<div style="text-align: center; font-weight:bold">
+
+<p style="font-variant: small-caps">
+Pengakuan Iman<br />
+Huria Kristen Batak Protestan (HKBP)<br />
+Tahun 1951
+</p>
+
+<p style="margin-bottom: 0">Diterbitkan: Kantor Pusat HKBP</p>
+<p style="margin-top: 0">Percetakan HKBP Jl. Jend. A. Yani 63 P. Siantar</p>
+
+</div>
 
 ## Pendahuluan
 
