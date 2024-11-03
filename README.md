@@ -4,11 +4,15 @@ HKBP Guidebook adalah kumpulan teks yang berhubungan dengan Gereja Huria Kristen
 
 Teks-teks yang dikumpulkan telah diubah agar lebih nyaman dalam pencarian halaman dan membaca.
 
-> Tulisan yang ada di situs ini telah disuting untuk kenyamanan, sehingga akan ada perbedaan kosmetika dibandingkan dengan sumber-sumber lain
+> [!NOTE]
+>
+> ## Sangkalan
+> 
+> Tulisan yang ada di situs ini telah disuting untuk kenyamanan, sehingga akan ada penyesuaian kosmetika yang membuat terdapat perbedaan dibandingkan dengan sumber-sumber lain.
 >	
 > Meskipun penyuting telah memeriksa tulisan-tulisan ini sebelum dipublikasi, para pembaca diharapkan dapat tetap memeriksa kebenarannya dengan sumber-sumber lain.
 >	
-> Penyuting tidak bertanggung jawab atas kesalahan dan perbedaan yang mungkin ada dalam tulisan di situs ini.
+> Penyuting tidak bertanggung jawab atas kesalahan yang mungkin ada dalam tulisan di situs ini atau yang terjadi dari tulisan di situs ini.
 
 ## Berkontribusi
 

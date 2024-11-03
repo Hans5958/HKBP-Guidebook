@@ -4,13 +4,13 @@ HKBP Guidebook adalah kumpulan teks yang berhubungan dengan Gereja Huria Kristen
 
 Teks-teks yang dikumpulkan telah diubah agar lebih nyaman dalam pencarian halaman dan membaca.
 
-!!! note "Catatan"
+!!! note "Sangkalan"
 
-   	Tulisan yang ada di situs ini telah disuting untuk kenyamanan, sehingga akan ada perbedaan kosmetika dibandingkan dengan sumber-sumber lain
+   	Tulisan yang ada di situs ini telah disuting untuk kenyamanan, sehingga akan ada penyesuaian kosmetika yang membuat terdapat perbedaan dibandingkan dengan sumber-sumber lain.
 	
 	Meskipun penyuting telah memeriksa tulisan-tulisan ini sebelum dipublikasi, para pembaca diharapkan dapat tetap memeriksa kebenarannya dengan sumber-sumber lain.
 	
-	Penyuting tidak bertanggung jawab atas kesalahan yang mungkin ada dalam tulisan di situs ini.
+	Penyuting tidak bertanggung jawab atas kesalahan yang mungkin ada dalam tulisan di situs ini atau yang terjadi dari tulisan di situs ini.
 
 ## Berkontribusi
 
@@ -23,7 +23,6 @@ Jika Anda...
 ..., Anda dapat menyampaikannya di [fitur *issues* pada GitHub](https://github.com/Hans5958/HKBP-Guidebook/issues) atau dengan menulis surel ke saya (alamatnya ada di [GitHub saya](https://github.com/Hans5958)).
 
 Anda juga dapat memuat [sebuah *pull request*](https://opensource.com/article/19/7/create-pull-request-github), yang nanti akan diperiksa sebelum digabungkan ke dalam repositori utama.
-
 
 ## Hak cipta
 
