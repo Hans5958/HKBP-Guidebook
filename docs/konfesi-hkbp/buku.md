@@ -2,13 +2,19 @@
 
 **Nama lengkap:** Pengakuan Iman (Konfesi) HKBP
 
+!!! note "Catatan"
+
+    Isi dari halaman ini telah disebar oleh berbagai sumber dan berasal dari sebuah buku yang dirilis pada 2000. Isi dari buku ini memiliki Bahasa Indonesia, Bahasa Batak, dan Bahasa Inggris dan kedua konfesi di dalam satu halaman. Namun, isinya terpotong sampai Pasal 5 di Konfesi 1966.
+
+    Pengembangan lebih lanjut akan dilakukan dengan membuat halaman-halaman baru yang berisi kedua konfesi dalam Bahasa Indonesia dan Bahasa Batak. Harap maklum.
+
 ## Konfesi 1951: Pendahuluan
 
 ­"Pengakuaan Percaya" amatlah perlu untuk menyatakan iman kita dan menolak ajaran-ajaran yang sesat. Dahulu telah ada pada Gereja Pengakuan Iman Oikumene untuk melawan ajaran-ajaran yang sesat. Pada waktu Reformasi ada juga surat-surat Pengakuan Percaya melawan ajaran dari Gereja Katolik Roma, yang menyimpang dari Alkitab. Pada tiap-tiap saat timbul ajaran-ajaran yang sesat yang menggoncangkan Gereja, dan karena itu pula timbul surat-surat pengakuan yang baru.
 
 Akan tetapi, di dalam pengakuan yang baru itu, pengakuan yang mendahuluinya tidak dilupakan untuk melawan ajaran-ajaran baru yang sesat itu. Jadi Gereja harus selalu mempunyai pengakuan yang baru untuk melawan ajaran yang sesat yang timbul. Para Reformator tidak hanya memakai pengakuan purba, akan tetapi bentuknya telah diperbaharui pada zaman mereka itu. Jadi Gereja tidak boleh senang saja memegang pengakuan yang dahulu, malahan pengakuan-pengakuan itu harus dipersegar dan dikenakan untuk setiap waktu.
 
-Sejak tahun 1933 terdapat ajaran-ajaran yang sesat di Jerman. Gereja-gereja di sana dibangun, karena merasa, bahwa pengakuan-pengakuan yang dahulu itu tidak cukup melawan ajaran-ajaran yang sesat itu serta menyusun suatu kesaksian yang baru yang disebut: "Die Barmen Thesen".[^31-5 1934] Ditandaskan di situ pemerintahan Kristus sendiri dan dengan demikian dilawan pemerintahan orang-orang di dalam hal keagamaan sepeti Hitler dan kawan-kawannya.
+Sejak tahun 1933 terdapat ajaran-ajaran yang sesat di Jerman. Gereja-gereja di sana dibangun, karena merasa, bahwa pengakuan-pengakuan yang dahulu itu tidak cukup melawan ajaran-ajaran yang sesat itu serta menyusun suatu kesaksian yang baru yang disebut: "Die Barmen Thesen".[^31-5-1934] Ditandaskan di situ pemerintahan Kristus sendiri dan dengan demikian dilawan pemerintahan orang-orang di dalam hal keagamaan sepeti Hitler dan kawan-kawannya.
 
 Ditanah Belanda juga ada usaha menyusun suatu pengakuan iman yang baru. Pengakuan iman itu juga beralas pada pengakuan yang lama, tetapi bernada baru pada zaman modern ini.[^Bolkestein]
 
@@ -24,10 +30,10 @@ Tetapi sekarang telah banyak ajaran-ajaran yang telah masuk dari luar dan juga t
 6. **Kumpulan "Bibelkring"**. Kumpulan ini berasal dari Balata dan berkembang ke Pematangsiantar. Di dalam Gereja kumpulan ini mau mengacaukan kepercayaan orang. Mereka menghunjuk kesalahan-kesalahan di dalam pekerjaan Gereja kita, yang tidak sesuai dengan Alkitab. Aliran ini telah sampai juga ke Tapanuli.
 7. **Kekristenan Nasinalisme**. Ini berkembang selama perang Dunia yang kedua yang lewat ini. Mereka mengajarkan kekristenan yang sesat dengan menyesuaikan kekristenan dengan cita-cita kebangsaan saja.
 8. **Sinkretisme**. Aliran ini tersimpul di dalam perkataan: "Semua agama adalah benar, hanya yang satu mempunyai kelebihan dari yang lain". Di Jakarta telah timbul suatu agama yang dinamai: Islam Isa. Agama ini adalah pencampuran dari Islam - Kekristenan, dan agama Yahudi. Surat selebarannya sampai juga di tempat kita. Penilaiannya terhadap agama adalah sebagai berikut: Agama mereka sebagai emas murni 24 karat, Kekristenan 22 karat, merupakan suatu agama tinggi, agama Yahudi 20 karat, termasuk agama menengah, Islam 18 karat termasuk agama menengah. Agama-agama lain 10 karat menjadi agama rendah.
-9. Ajaran-ajaran yang berasal dari Theosopie, Komunis dan Kapitalis. Banyak paham yang berasal dari bahagian-bahagian ini yang dapat mengelirukan iman.
-10. Telah ada kumpulan-kampulan dari orang-orang yang memisahkan diri dari Gereja kita, seperti Mission Batak, Huria Kristen Batak, H.K.I., dan kita tahu bahwa mungkin beberapa lagi yang akan timbul pada waktu-waktu yang akan datang. Perbedaan ajaran mereka dengan Gereja kita mungkin telah atau akan ada.
+9. Ajaran-ajaran yang berasal dari **Theosopie, Komunis dan Kapitalis**. Banyak paham yang berasal dari bahagian-bahagian ini yang dapat mengelirukan iman.
+10. Telah ada kumpulan-kampulan dari orang-orang yang memisahkan diri dari Gereja kita, seperti Mission Batak, Huria Kristen Batak, HKI, dan kita tahu bahwa mungkin beberapa lagi yang akan timbul pada waktu-waktu yang akan datang. Perbedaan ajaran mereka dengan Gereja kita mungkin telah atau akan ada.
 11. **Animisme dan Islam.** Adalah jelas bahwa ajaran golongan-golongan ini bisa datang di dalam bentuk lain daripada keagamaan saja. Peninggalan dari agama animisme masih terdapat di dalam jiwa banyak orang, dan peninggalan ini masih merupakan akar pohon besar yang telah roboh, tetapi akarnya belum dicabut seluruhnya dari tanah tempatnya bertumbuh.
-12. Kita juga harus menentukan Pengakuan kita terhadap Adat dan Kebudayaan dari bangsa kita. Kita harus jaga agar kedua hal ini jangan merusak iman kita. Zaman ini sangat menekankan adat dan kebudayaan. Hal ini adalah baik, akan tetapi walaupun demikian belum tentu semua hal di dalamnya dapat disesuaikan dengan kepercayaan kita. Kita harus insaf akan bahaya-bahaya yang terdapat di sana. Agama dan ajaran-ajaran yang berupa-rupa itu nyata merupakan suatu bahaya rohani bagi gereja kita.
+12. Kita juga harus menentukan Pengakuan kita terhadap **Adat dan Kebudayaan** dari bangsa kita. Kita harus jaga agar kedua hal ini jangan merusak iman kita. Zaman ini sangat menekankan adat dan kebudayaan. Hal ini adalah baik, akan tetapi walaupun demikian belum tentu semua hal di dalamnya dapat disesuaikan dengan kepercayaan kita. Kita harus insaf akan bahaya-bahaya yang terdapat di sana. Agama dan ajaran-ajaran yang berupa-rupa itu nyata merupakan suatu bahaya rohani bagi gereja kita.
 
 Karena itu zaman ini menghendaki dari kita: Pengakuan Percaya harus ditetapkan. Pengakuan ini harus berisikan ajaran-ajaran yang murni yang kita saksikan dari semula dan inilah yang menjadi tanda Gereja kita dan alas bagi pemberitaan kita.
 
@@ -36,7 +42,7 @@ Selain dari itu, Gereja kita membutuhkan Pengakuan Percaya yang meliputi kesimpu
 Kesimpulan dari kebutuhan ini adalah sebagai berikut:
 
 1. Iman yang hidup membuahkan pengakuan seperti disebut Rasul Paulus kepada orang Korintus: Aku sudah percaya, maka itulah sebabnya aku sudah berkata.[^2 Korintus 4:13]
-2. Sebagai Gereja kita harus memberikan kesaksian terhadap dunia, seperti dikatakan oleh Rasul Petrus: Hendaklah (kamu) bersedia senantiasa memberi jawab kepada tiap-tiap orang yang menanya kamu dari hal pengharapan yang ada padamu.[^1 Petrus 3:15] bandingkan juga dengan 1 Timotius 4:6: Jikalau engkau ajarkan segala perkara itu kepada saudara-saudara kita, niscaya engkau akan menjadi hamba yang baik kepada Kristus Yesus, mahir di dalam pengajaran iman dan segala pengajaran yang baik.
+2. Sebagai Gereja kita harus memberikan kesaksian terhadap dunia, seperti dikatakan oleh Rasul Petrus: Hendaklah (kamu) bersedia senantiasa memberi jawab kepada tiap-tiap orang yang menanya kamu dari hal pengharapan yang ada padamu.[^1 Petrus 3:15]
 3. Dalam pada itu, di dalam terang Tuhan, kita harus membedakan ajaran yang benar daripada ajaran yang sesat, seperti disebut Yohanes: Hai segala kekasihku janganlah percaya akan sebarang roh, melainkan ujilah roh itu, kalau-kalau daripada Allah datangnya. Dengan demikian, dapatlah kamu mengenal Roh Allah. Hai anak-anakku, kamu ini daripada Allah dan telah mengalahkan mereka itu, karena terlebih besarlah ia yang ada di dalam kamu daripada dia yang ada di dalam dunia.
 4. Sebab Tuhan menghendaki keesaan hidup Gereja, maka keesaan itu harus didapati di dalam keesaan Pengakuan Iman; seperti disebut Rasul Paulus: "Sambil memeliharakan persatuan roh dengan perhubungan sejahtera - satu Tuhan, satu Iman, satu Baptisan".[^Efesus 4:5] bandingkan dengan Yohanes 17:21: Supaya semuanya jadi satu juga, sama seperti Akupun di dalam Engkau.
 5. Pengakuan Percaya harus menjadi warisan yang berharga kepada keturunan Gereja di kemudian hari, agar mereka dapat mengikuti iman dari nenek moyangnya, seperti tertulis di dalam Ulangan 6:7: Dan hendaklah kamu mengajarkan Dia akan anak-anakmu
@@ -73,7 +79,7 @@ Kiranya semua majelis dan warga jemaat dengan rajin membaca dan mempergunakan Pe
    <b>Penerjemah:</b>
    <p>Ds. K. Sitompul (†)</p>
    <b>Penyunting Edisi Indonesia:</b>
-   <p>Ds.K. Sitompul (†)</p>
+   <p>Ds. K. Sitompul (†)</p>
    <b>Diterbitkan oleh:</b>
    <p>Kantor Pusat HKBP</p>
    <p>Pearaja Tarutung 2000</p>
@@ -106,9 +112,9 @@ Adalah patut supaya anggota-anggota Gereja taat pada kuasa ini, akan tetapi keta
 
 1. Pengakuan Percaya dari Huria Kristen Batak Protestan ini, ialah lanjutan dari Pengakuan Percaya (Kofessi) yang telah ada, yaitu Pengakuan Percaya yang tiga yang seperti telah disaksikan oleh Bapa-bapa Gereja terlebih dahulu, yang disebut:
 
-   - Pengakunan Iman Apostolikam
-   - Pengakunan Iman Nicenum
-   - Pengakunan Iman Anathasianum
+      - Pengakunan Iman Apostolikam
+      - Pengakunan Iman Nicenum
+      - Pengakunan Iman Anathasianum
 
 2. Pengakuan Percaya ini, adalah kesimpulan-kesimpulan dari hal yang kita percayai dan harapkan pada hidup ini dan pada hidup kelak.
 
@@ -116,7 +122,7 @@ Adalah patut supaya anggota-anggota Gereja taat pada kuasa ini, akan tetapi keta
 
 4. Pengakuan Percaya ini, ialah dasar bagi HKBP untuk menolak dan melawan ajaran yang sesat dan keliru, yaitu yang tidak sesuai dengan Firman Tuhan.
 
-## Konfesi 1951: Pasal 1 Tentang Allah
+## Konfesi 1951: Pasal 1 tentang Allah
 
 **Kita percaya serta menyaksikan:**
 
@@ -124,7 +130,7 @@ Allah adalah Esa, tidak bermula dan tak berkesudahan, Maha Kuasa, Tidak berobah-
 
 ­Dengan ajaran ini kita menolak dan melawan kebiasaan yang menyebut Allah: Nenek (Ompung) dan yang memandang, bahwa Tuhan hanyalah Pemurah saja. Demikian pula orang-orang yang mengharap bahwa berkat dan kemurahan berasal dari roh nenek moyang, seperti dibiasakan oleh orang Kafir. Demikian pula orang-orang yang meneliti hari-hari yang membawa berkat yang merundingkan nasibnya kepada dukun atau mengharap berkat dari letak garis-garis pada tangannya. Juga kita menolak ajaran yang menyatakan kuasa Tuhan di atas kekudusan serta kasihNya.
 
-## Konfesi 1951: Pasal 2 Tentang Allah yang Tiga-Esa
+## Konfesi 1951: Pasal 2 tentang Allah yang Tiga-Esa
 
 **Kita percaya dan menyaksikan:**
 
@@ -146,11 +152,16 @@ Kita pula melawan ajaran yang mengatakan, Allah yang Tritunggal itu, ialah Allah
 Dengan ajaran ini kita menolak dan melawan ajaran dari Roma Katolik yang mengatakan: 
    1. Bahwa Maria, Ibu dari Tuhan Yesus, yang disebut Kudus, membela kita kepada Allah. 
    2. Para Pastor berkuasa lagi mengorbankan daging Kristus di dalam missa. 
-   3. Paus di Romalah wakil Kristus di dunia.[^Matius 23:8-10] Juga kita menolak ajaran orang yang menyamakan sepenuhnya Tuhan Yesus dengan para nabi di dunia ini.
+   3. Paus di Romalah wakil Kristus di dunia.[^Matius 23:8-10]
+   4. Juga kita menolak ajaran orang yang menyamakan sepenuhnya Tuhan Yesus dengan para nabi di dunia ini.
 
-3. Allah Rohu'lkudus memanggil, menerima dan mengajarkan Gereja dan menetapkannya di dalam iman, kekudusan dengan Injil untuk kemuliaan Allah.[^Roma 8:14-17; 1 Korintus 3:16] (bandingkan dengan arti dari pasal ketiga dari Iman di dalam Katekismus Luther). Dengan ajaran ini kita menolak dan melawan ajaran yang mengatakan, Rohu'lkudus dapat turun kepada manusia dengan usaha manusia sendiri di luar Injil. Demikian pula kita menolak dan melawan ajaran yang mengatakan: Hanya kemasukan (ekstase) dan lidah asinglah tanda keturunan Rohu'lkudus. Kita pula menolak dan melawan ajaran yang mengatakan: Tak usah orang sakit berobat, cukuplah jika mendoakan kesembuhan kepada Rohu'lkudus. Begitu pula orang yang bernubuat palsu demi nama Rohu'lkudus. Juga pergaulan yang malampaui batas-batas kesompanan, karena katanya telah dipenuhi Rohu'lkudus. Kita menolak dan melawan segala ajaran itu, karena itu adalah ajaran yang memakai Nama Rohu'lkudus dengan jalan yang tidak benar 
+1. Allah Rohu'lkudus memanggil, menerima dan mengajarkan Gereja dan menetapkannya di dalam iman, kekudusan dengan Injil untuk kemuliaan Allah.[^Roma 8:14-17; 1 Korintus 3:16] 
 
-## Konfesi 1951: Pasal 4 Tentang Firman Allah
+   Dengan ajaran ini kita menolak dan melawan ajaran yang mengatakan, Rohu'lkudus dapat turun kepada manusia dengan usaha manusia sendiri di luar Injil. Demikian pula kita menolak dan melawan ajaran yang mengatakan: Hanya kemasukan (ekstase) dan lidah asinglah tanda keturunan Rohu'lkudus. Kita pula menolak dan melawan ajaran yang mengatakan: Tak usah orang sakit berobat, cukuplah jika mendoakan kesembuhan kepada Rohu'lkudus. 
+   
+   Begitu pula orang yang bernubuat palsu demi nama Rohu'lkudus. Juga pergaulan yang malampaui batas-batas kesompanan, karena katanya telah dipenuhi Rohu'lkudus. Kita menolak dan melawan segala ajaran itu, karena itu adalah ajaran yang memakai Nama Rohu'lkudus dengan jalan yang tidak benar 
+
+## Konfesi 1951: Pasal 4 tentang Firman Allah
 
 **Kita percaya dan menyaksikan:**
 
@@ -164,7 +175,7 @@ Dengan ajaran ini ditekankan: Alkitab telah menyatakan diri Allah dan kemauannya
 
 Hanya Alkitablah awal dan akhir semua pemikiran, pengetahuan dan usaha di dalam Gereja dan bagi setiap orang percaya. Dengan ajaran ini kita tolak semua kepandaian dan kebijaksanaan manusia yang bertentangan dengan Firman Allah.[^Amsal 3:5; Mazmur 111:10]
 
-## Konfesi 1951: Pasal 5 Tentang Dosa
+## Konfesi 1951: Pasal 5 tentang Dosa
 
 **Asal dari Dosa**
 
@@ -172,7 +183,7 @@ Iblislah asal mula dari dosa. Ia menghendaki supaya semua orang berdosa, yaitu b
 
 Jadi walaupun manusia yang pertama (Adam dan Hawa) sempurna adanya, yaitu yang dapat melakukan kemauan Allah, mereka melanggar hukum yang diberikan Allah kepadanya karena godaan Iblis, serta mereka berbalik dari Allah. Dosa ialah pelanggaran kemauan Allah.[^1 Yohanes 3:4; Yakobus 1:15]
 
-## Konfesi 1951: Pasal 6 Tentang Dosa Warisan
+## Konfesi 1951: Pasal 6 tentang Dosa Warisan
 
 **Kita percaya dan menyaksikan:**
 
@@ -181,7 +192,7 @@ Sejak Adam dan Hawa jatuh ke dalam dosa, dosa itu masuk kepada semua turunannya.
 Dengan ajaran ini kita menolak dan melawan ajaran yang menyatakan: Bayi yang baru lahir tidak berdosa. Juga ajaran yang bertentangan dengan Firman Allah yang mengatakan: Dosa hanyalah akibat kemiskinan, kekurangan dan kesengsarasn dan karena itu dosa tidak begitu diberatkan.
 Demikian pula ajaran yang mengatakan bahwa hati orang adalah bersih seperti kertas yang tidak bertulisan pada waktu lahirnya.
 
-## Konfesi 1951: Pasal 7 Tentang Kelepasan Dari Dosa
+## Konfesi 1951: Pasal 7 tentang Kelepasan Dari Dosa
 
 **Kita percaya dan menyaksikan:**
 
@@ -193,7 +204,9 @@ Iman yang sedemikianlah yang dipandang Allah menjadi kebenaran di hadapanNya.[^Y
 
 ## Konfesi 1951: Pasal 8 tentang Gereja
 
-### A. **Kita percaya dan menyaksikan:**
+### A.
+
+**Kita percaya dan menyaksikan:**
 
 Gereja ialah persekutuan orang-orang yang percaya kepada Yesus Kristus, yang dipanggil, dihimpun, dikaduskan dan ditetapkan Allah dengan Rohu'lkudus.[^1 Korintus 1:2 et al]
 
@@ -207,19 +220,25 @@ Dengan ajaran ini kita menolak dan melawan:
 
 4. Pemikiran yang mengatakan: Gereja adalah berasaskan dan terikat pada adat dan juga pendirian yang mengharapkan hidup dari organisasi.
 
-### B. **Kita percaya dan menyaksikan:**
+### B.
+
+**Kita percaya dan menyaksikan:**
 
 Gereja adalah kudus. Alasan dari kekudusan Gereja, bukan karena kekudusan anggotanya sendiri-sendiri, melainkan karena kekudusan Kristus, kepala Gereja itu. Gereja adalah kudus, karena dikuduskan oleh Kristus dan karena itulah Allah memandangnya kudus. Karena kekudusan inilah disebut Gereja Bangsa yang kudus. Bait Rohu'lkudus dan Bait Allah.[^1 Petrus 2:9 et al]
 
 Dengan ajaran ini kita menolak dan melawan paham yang mengatakan: Manusia dapat memperoleh kekudusan karena usahanya sendiri begitu pula keputusan, yang juga menyebabkan perpisahan karena masih dilihat anggota-anggota Gereja yang melakukan dosa.
 
-### C. **Kita percaya serta menyaksikan:**
+### C.
+
+**Kita percaya serta menyaksikan:**
 
 Gereja itu adalah "Am, ialah persekutuan semua orang kudus, yang telah percaya di dalam Yesus Kristus dan pemberianNya, ialah Injil, Rohu'lkudus, Iman, Kasih dan Pengharapan. Ialah orang-orang dari tiap negeri, bangsa, suku dan bahasa, walaupun berlainan kebiasaan dan keturunannya.[^Wahyu 7:9]
 
 Dengan ajaran ini kita menolak dan melawan ajaran yang menghendaki agama kebangsaan dan juga pendirian, bahwa satu-satu Gereja dapat hidup terpisah dari yang lain.
 
-### D. **Kita percaya dan menyaksikan:**
+### D.
+
+**Kita percaya dan menyaksikan:**
 
 Gereja adalah Esa. Asas untuk keesaan ialah Efesus 4:4; 1 Korintus 12:20. "Tubuh itu, yaitu Gereja adalah Esa. Walaupun banyak anggota tubuh itu Esa adanya". Keesaan yang dimaksud di situ bukanlah keesaan duniawi, melainkan keesaan rohani.
 
@@ -233,7 +252,7 @@ Dengan ajaran itu kita menolak dan melawan: semua perpisahan yang tidak disebabk
 2. Di mana dilayani Sakramen yang dua itu sebagai dengan Firman Tuhan Yesus.
 3. Di mana dilakukan tuntutan melawan dosa.
 
-## Konfesi 1951: Pasal Tentang Pelayan-Pelayan Gereja
+## Konfesi 1951: Pasal 9 tentang Pelayan-Pelayan Gereja
 
 **Kita percaya dan menyaksikan:**
 
@@ -253,7 +272,7 @@ Dengan ajaran ini kita menolak dan melawan pendirian yang meniadakan jabatan sat
 
 Dengan ajaran ini kita menolak setiap pelayan di tengah-tengah Gereja, baik yang berkhotbah, mengajar dan melayani Sakramen jika tidak Gereja yang menyerahkan jabatan itu kepadanya.
 
-## Konfesi 1951: Pasal 10 Tentang Sakramen
+## Konfesi 1951: Pasal 10 tentang Sakramen
 
 **Kita percaya dan menyaksikan:**
 
@@ -281,7 +300,7 @@ Dengan ajaran ini kita menolak dan melawan ajaran yang mengatakan: Hanya rotilah
 
 Juga tidak ada alasan dari Firman Tuhan untuk mengartikan wujud dari missa, di mana dikatakan, bahwa Tuhan kita di korbankan lagi setiap kali dilakukan missa, karena itu kita menolak ajaran ini.
 
-## Konfesi 1951: Pasal 11 Tentang Tata Gereja
+## Konfesi 1951: Pasal 11 tentang Tata Gereja
 
 **Kita menyaksikan:**
 
@@ -291,7 +310,7 @@ Berhubungan dengan itu kita rayakan hari-hari raya Gereja, seperti Natal, Kemati
 
 Akan tetapi, kita harus ingat dengan baik, bahwa oleh kesetiaan kita menuruti semua hal itu, kita tidak dapat memperoleh keselamatan.
 
-## Konfesi 1951: Pasal 12 Tentang Pemerintah
+## Konfesi 1951: Pasal 12 tentang Pemerintah
 
 **Kita menyaksikan:**
 
@@ -305,7 +324,7 @@ Dengan ajaran ini kita menolak paham yang mengatakan: Negara adalah negara keaga
 
 Jika perlu di hadapan hakim untuk menyaksikan kebenaran, orang Kristen boleh bersumpah, demikian pula waktu menerima jabatan atau pangkat.
 
-## Konfesi 1951: Pasal 13 Tentang Hari Minggu
+## Konfesi 1951: Pasal 13 tentang Hari Minggu
 
 Kita memuliakan Hari Minggu.
 
@@ -313,23 +332,25 @@ Hari Minggu adalah "Hari Tuhan", yaitu permulaan penjadian oleh Allah, Kebangkit
 
 Dengan ajaran ini kita menolak dan melawan ajaran golongan Sabbatis, yang mengatakan bahwa hari Sabbathlah yang harus dimuliakan.
 
-## Konfesi 1951: Pasal 14 Tentang Makanan
+## Konfesi 1951: Pasal 14 tentang Makanan
 
 **Kita percaya dan menyaksikan:**
 
 Semua yang diberikan Allah adalah baik, kita tidak memantangkan, asal diterima dengan hati yang penuh syukur, sebab pemberian-pemberian itu menjadi suci karena Firman Tuhan dan doa.
 
 Manusia tidak menjadi suci karena mengindahkan bermacam-macam pantangan-pantangan terhadap makanan. Sebab imanlah yang menyucikan pemberian Allah. Manusia tidak menjadi suci karena mengindahkan hukum-hukum tentang makanan. Oleh sebab itulah Rasul Paulus melawan aturan-aturan bangsa Yahudi tentang makanan. Tidak boleh Injil terbelakang karena pantang makanan, hadis atau tradisi.[^Matius 15 et al]
+
 Dengan ajaran ini kita menolak ajaran orang-orang yang menyebarkan paham-paham yang sesat mengenai makanan.
 
-## Konfesi 1951: Pasal 15 Tentang Iman dan Pekerjaan Baik
+## Konfesi 1951: Pasal 15 tentang Iman dan Pekerjaan Baik
 
 **Kita percaya dan menyaksikan:**
 
 Iman harus membuahkan pekerjaan baik. Tetapi orang adalah sesat, jika diharapkan kebenaran, hidup, penghiburan dan sejahtera baginya, kalau diperbuat pekerjaan baik, karena Tuhan Yesuslah yang dapat mengampuni dosa dan mendamaikan manusia dengan Allah.
-Karena itu kita harus menuruti Hukum-hukum yang 10 itu (Dasatitah), tetapi hanya imanlah yang memberikan kehidupan bagi kita, bukan pekerjaan yang baik. Rohu'lkudus yang menggerakkan hati manusia melakukan pekerjaan baik, dan jika bukan Rohu'lkudus yang mengerjakan (di dalam kita), pekerjaan baik menjadi dosa.[^Yohanes 5:1 et al]
 
-## Konfesi 1951: Pasal 16 Tentang Peringatan Orang Meninggal
+Karena itu kita harus menuruti Hukum-hukum yang 10 itu (Dasatitah), tetapi hanya imanlah yang memberikan kehidupan bagi kita, bukan pekerjaan yang baik. Rohu'lkudus yang menggerakkan hati manusia melakukan pekerjaan baik, dan jika bukan Rohu'lkudus yang mengerjakan (di dalam kita), pekerjaan baik menjadi dosa.[^Yohanes 5:15-16 et al]
+
+## Konfesi 1951: Pasal 16 tentang Peringatan Orang Meninggal
 
 **Kita percaya dan menyaksikan:**
 
@@ -341,13 +362,13 @@ Dengan ajaran ini kita menolak dan melawan ajaran animisme yang mengatakan: Roh-
 
 Demikian pula doa kepada roh dari orang-orang kudus dan yang mengharapkan bahwa kekuatan dan kekudusan orang itu dapat turun dari kuburan, pakaian, barang atau tulang-tulangnya (relikwi).
 
-## Konfesi 1951: Pasal 17 Tentang Malaikat
+## Konfesi 1951: Pasal 17 tentang Malaikat
 
 **Kita percaya dan menyaksikan:**
 
 Malaikat adalah juga yang dijadikan Allah untuk melayani Dia; ialah roh-roh pelayan yang disuruh membantu orang-orang yang akan mewarisi hidup kekal.[^Ibrani 1:14]
 
-## Konfesi 1951: Pasal 18 Tentang Hukuman Pada Hari Kiamat
+## Konfesi 1951: Pasal 18 tentang Hukuman Pada Hari Kiamat
 
 **Kita percaya dan menyaksikan:**
 
@@ -458,24 +479,26 @@ Kita menyaksikan tanggung jawab manusia untuk melestarikan semua ciptaan Allah s
 
 Kita menentang setiap kegiatan yang merusak lingkungan, seperti membakar dan menebang pohon di hutan atau hutan belantara[^Ulangan 5:20, 19-20]. Kita menentang setiap usaha yang mencemari air dan udara, juga air limbah yang mengandung racun dari pabrik-pabrik, karena tidak memedulikan saluran air limbah dan pencemaran udara, hingga merusak air minum dan pernafasan manusia (polusi/pencemaran lingkungan).[^Mazmur 104:1-23; Wahyu 22:1-2]
 
-[^31-5 1934]: 31-5 1934
+[^31-5-1934]: 31 Mei 1934
 [^Bolkestein]: Dr. H.M. Bolkestein, hal. 203
 [^2 Korintus 4:13]: 2 Korintus 4:13
-[^1 Petrus 3:15]: 1 Petrus 3:15
+[^1 Petrus 3:15]: 1 Petrus 3:15. Bandingkan juga dengan 1 Timotius 4:6: Jikalau engkau ajarkan segala perkara itu kepada saudara-saudara kita, niscaya engkau akan menjadi hamba yang baik kepada Kristus Yesus, mahir di dalam pengajaran iman dan segala pengajaran yang baik.
 [^Efesus 4:5]: Efesus 4:5
-[^2 Korintus 1:21-22]: 2 Korintus 1:21-22
+[^2 Korintus 1:21-22, 2 Timotius 3:16-17]: 2 Korintus 1:21-22, 2 Timotius 3:16-17
 [^Matius 16:16]: Matius 16:16
-[^Ulangan 6:4 et al]: Ulangan 6:4; Keluaran 3:14a; Kejadian 17:1; Mazmur 105:8; 1 Korintus 1:9; 2 Tesalonika 3:3; Lukas 1:37; Roma 2:33; Ulangan 1:17; Roma 2:11; 1 Korintus 1:30; Mazmur 103:8; 24:1; Yesaya 6:3; Yohanes 3:16; 1 Timotius 6:15-16
+[^Ulangan 6:4 et al]: Ulangan 6:4; Keluaran 3:14a; Kejadian 17:1; Mazmur 105:8; 1 Korintus 1:9; 2 Tesalonika 3:3; Lukas 1:37; Roma 11:33; Ulangan 1:17; Roma 2:11; 1 Korintus 1:30; Mazmur 103:8; 24:1; Yesaya 6:3; Yohanes 3:16; 1 Timotius 6:15-16
 [^Yohanes 5:19 et al]: Yohanes 5:19; 14:11; 1:1; 15:26; 2 Korintus 13:13; Matius 28:19
-[^Matius 28 et al]: Matius 28; 18; Efl 20-22; 1:7; Yohanes 3:16; Ibrani 9:14; Filemon 2:4-6
+[^Yohanes 15:26]: Yohanes 15:26
+
+[^Matius 28 et al]: Matius 28; 18; Efesus 1:20-22, 1:7; Yohanes 3:16; Ibrani 9:14; Filemon 2:4-6
 [^Matius 23:8-10]: Matius 23:8-10
-[^Roma 8:14-17; 1 Korintus 3:16]: Roma 8:14-17; 1 Korintus 3:16
+[^Roma 8:14-17; 1 Korintus 3:16]: Roma 8:14-17; 1 Korintus 3:16 (bandingkan dengan arti dari pasal ketiga dari Iman di dalam Katekismus Luther)
 [^1 Petrus 1:21]: 1 Petrus 1:21
 [^Wahyu 22:18-19]: Wahyu 22:18-19
 [^Amsal 3:5; Mazmur 111:10]: Amsal 3:5; Mazmur 111:10
 [^Yohanes 8:44; Kejadian 3:1-7; Wahyu 20:10]: Yohanes 8:44; Kejadian 3:1-7; Wahyu 20:10
 [^1 Yohanes 3:4; Yakobus 1:15]: 1 Yohanes 3:4; Yakobus 1:15
-[^Mazmur 51:7 et al]: Mazmur 51:7; 58:4; Kejadian 8:21; Roma 5:12; 3:12; 3:23; Titus 3:5; Yohanes 3:5; Yohanes 6:63
+[^Mazmur 51:7 et al]: Mazmur 51:7; 58:4; Kejadian 8:21; Roma 5:12, 3:12, 23; Titus 3:5; Yohanes 3:5; Yohanes 6:63
 [^Yohanes 3:16 et al]: Yohanes 3:16; 2 Korintus 8:9; Kisah Para Rasul 4:12.
 [^1 Korintus 1:2 et al]: 1 Korintus 1:2; 1 Petrus 2:9; Efesus 1:2, 22; 1 Korintus 3
 [^1 Petrus 2:9 et al]: 1 Petrus 2:9; Efesus 2:22; Wahyu 1:6; Efesus 3:21; 1 Korintus 3:16
@@ -491,7 +514,7 @@ Kita menentang setiap kegiatan yang merusak lingkungan, seperti membakar dan men
 [^1 Korintus 14:33]: 1 Korintus 14:33
 [^Matius 22:21b]: Matius 22:21b
 [^Matius 15 et al]: Matius 15: Roma 14; Kolose 2; Kisah Para Rasul 15; 1 Timotius 4:4-5
-[^Yohanes 5:1 et al]: Yohanes 5:1; 5-16; Efesus 2:8; Roma 5:1
+[^Yohanes 5:15-16 et al]: Yohanes 5:15-16; Efesus 2:8; Roma 5:1
 [^Ibrani 9:27]: Ibrani 9:27
 [^Wahyu 14:53]: Wahyu 14:53
 [^Wahyu 7:9-17]: Wahyu 7:9-17

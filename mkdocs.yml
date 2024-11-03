@@ -1,35 +1,43 @@
 site_name: 'HKBP Guidebook'
 site_description: 'Kumpulan teks yang berhubungan dengan HKBP.'
-site_author: 'Hans5958'
-site_url: 'https://hans5958.github.io/HKBP-Guidebook'
+site_author: Hans5958
+site_url: https://hans5958.github.io/HKBP-Guidebook
 nav:
-  - 'Halaman Utama': 'index.md'
+  - 'Halaman Utama': index.md
   - 'Sepuluh Perintah Allah':
-    - 'Bahasa Indonesia – Sepuluh Perintah Allah': 'sepuluh-perintah-allah.md'
-    - 'Bahasa Batak – Patik Ni Debata': 'patik-ni-debata.md'
+    - 'Bahasa Indonesia – Sepuluh Perintah Allah': sepuluh-perintah-allah.md
+    - 'Bahasa Batak – Patik Ni Debata': patik-ni-debata.md
   - 'Kesaksian Iman Kristen':
-    - 'Bahasa Indonesia – Kesaksian Iman Kristen': 'kesaksian-iman-kristen.md'
-    - 'Bahasa Batak – Hata Haporseaon': 'hata-haporseaon.md'
+    - 'Bahasa Indonesia – Kesaksian Iman Kristen': kesaksian-iman-kristen.md
+    - 'Bahasa Batak – Hata Haporseaon': hata-haporseaon.md
   - 'Doa Bapa Kami':
-    - 'Bahasa Indonesia – Doa Bapa Kami': 'doa-bapa-kami.md'
-    - 'Bahasa Batak – Tangiang Ale Amanami': 'tangiang-ale-amanami.md'
+    - 'Bahasa Indonesia – Doa Bapa Kami': doa-bapa-kami.md
+    - 'Bahasa Batak – Tangiang Ale Amanami': tangiang-ale-amanami.md
   - 'Sakramen Baptisan Kudus':
-    - 'Bahasa Indonesia – Sakramen Baptisan Kudus': 'sakramen-baptisan-kudus.md'
-    - 'Bahasa Batak – Pandidion': 'pandidion.md'
+    - 'Bahasa Indonesia – Sakramen Baptisan Kudus': sakramen-baptisan-kudus.md
+    - 'Bahasa Batak – Pandidion': pandidion.md
   - 'Sakramen Perjamuan Kudus':
-    - 'Bahasa Indonesia – Sakramen Perjamuan Kudus': 'sakramen-perjamuan-kudus.md'
-    - 'Bahasa Batak – Marulaon Na Badia': 'marulaon-na-badia.md'
-  - 'Konfesi HKBP': 'konfesi-hkbp.md'
-  - 'RPP HKBP': 'rpp-hkbp.md'
+    - 'Bahasa Indonesia – Sakramen Perjamuan Kudus': sakramen-perjamuan-kudus.md
+    - 'Bahasa Batak – Marulaon Na Badia': marulaon-na-badia.md
+  - 'Konfesi HKBP':
+    - 1951:
+      - 'Bahasa Indonesia': konfesi-hkbp/1951/id.md
+      - 'Bahasa Batak': konfesi-hkbp/1951/bbc.md
+    - 1966:
+      - 'Bahasa Indonesia': konfesi-hkbp/1966/id.md
+      - 'Bahasa Batak': konfesi-hkbp/1966/bbc.md
+    - Versi Buku: konfesi-hkbp/buku.md
+  - 'RPP HKBP': rpp-hkbp.md
 
-repo_name: 'Hans5958/HKBP-Guidebook'
-repo_url: 'https://github.com/Hans5958/HKBP-Guidebook'
+repo_name: Hans5958/HKBP-Guidebook
+repo_url: https://github.com/Hans5958/HKBP-Guidebook
 
 extra_css:
   - assets/stylesheets/extra.css
 
 theme: 
-  name: 'material'
+  name: material
+  custom_dir: overrides
   language: id
   palette:
   - media: "(prefers-color-scheme)"
@@ -72,3 +80,6 @@ markdown_extensions:
 
 plugins:
   - search
+  - redirects:
+      redirect_maps:
+        konfesi-hkbp.md: konfesi-hkbp/buku.md
