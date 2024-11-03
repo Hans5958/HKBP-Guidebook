@@ -47,7 +47,9 @@ theme:
       icon: material/brightness-4
       name: Beralih ke preferensi sistem
   icon:
-    logo: material/library 
+    logo: material/library
+  features:
+    - announce.dismiss
 
 extra:
   analytics:
