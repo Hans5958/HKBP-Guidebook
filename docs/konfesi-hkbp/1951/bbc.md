@@ -128,7 +128,7 @@ Marhitehite poda on taalo jala tatulak do: Nasa hapistaran dohot habisuhon ni jo
 
 Sibolis do mula ni dosa, jala diparsinta rohana do, asa sude jolma gabe pardosa na marbalik sian Debata.[^Yohanes 8:44; Kejadian 3:1-7; Wahyu 20:10]
 
-Asa nang pe denggan jolma na parjolo i (Adam dohot Hawa) na boi mangulahon na hombar tu lomo ni roha ni Debata, na dilaosi do patik na nilehon ni Debata tu nasida hinorhon ni pangelaela ni sibolis i gabe marbalik sian Debata. Pangalaosion do dosa i.[^Yohanes 3:4; Yakobus 1:15]
+Asa nang pe denggan jolma na parjolo i (Adam dohot Hawa) na boi mangulahon na hombar tu lomo ni roha ni Debata, na dilaosi do patik na nilehon ni Debata tu nasida hinorhon ni pangelaela ni sibolis i gabe marbalik sian Debata. Pangalaosion do dosa i.[^1 Yohanes 3:4; Yakobus 1:15]
 
 ## Bindu 6: Dosa na Tinean
 
@@ -376,3 +376,4 @@ Asa tongtong hobas hita songon na pinasingothonna i.[^Lukas 12:35-36]
 [^Matius 25]: Mateus 25
 [^1 Tesalonika 5:2]: 1 Tesalonik 5:2; Mateus 24:42; 44:50; Lukas 12:35-36
 [^Lukas 12:35-36]: Lukas 12:35-36
+[^2 Timotius 3:16-17]: 2 Timotius 3:16-17

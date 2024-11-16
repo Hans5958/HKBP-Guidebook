@@ -392,3 +392,4 @@ Karena itu kita harus selalu bersiap seperti diperingatkan oleh Tuhan kita.[^Luk
 [^Matius 25]: Matius 25
 [^1 Tesalonika 5:2]: 1 Tesalonika 5:2; Matius 24:42; 44:50; Lukas 12:35-36
 [^Lukas 12:35-36]: Lukas 12:35-36
+[^2 Timotius 3:16-17]: 2 Timotius 3:16-17
