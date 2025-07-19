@@ -27,7 +27,11 @@ nav:
       - 'Bahasa Indonesia': konfesi-hkbp/1966/id.md
       - 'Bahasa Batak': konfesi-hkbp/1966/bbc.md
     - Versi Buku: konfesi-hkbp/buku.md
-  - 'RPP HKBP': rpp-hkbp.md
+  - 'RPP HKBP':
+    - 2022:
+      - 'Bahasa Indonesia': rpp-hkbp/2022/id.md
+      - 'Bahasa Batak': rpp-hkbp/2022/bbc.md
+    - Versi Buku : rpp-hkbp/lama.md
 
 repo_name: Hans5958/HKBP-Guidebook
 repo_url: https://github.com/Hans5958/HKBP-Guidebook
@@ -77,9 +81,11 @@ markdown_extensions:
   - admonition
   - pymdownx.details
   - pymdownx.superfences
+  - attr_list
 
 plugins:
   - search
   - redirects:
       redirect_maps:
         konfesi-hkbp.md: konfesi-hkbp/buku.md
+        rpp-hkbp.md: rpp-hkbp/2022/bbc.md

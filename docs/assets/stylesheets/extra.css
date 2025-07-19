@@ -1,7 +1,16 @@
-blockquote > :first-child {
+blockquote> :first-child {
 	margin-top: 0;
 }
 
-blockquote > :last-child {
+blockquote> :last-child {
 	margin-bottom: 0;
+}
+
+.md-banner a {
+	color: var(--md-accent-fg-color);
+}
+
+.md-banner a:focus,
+.md-banner a:hover {
+	color: var(--md-typeset-a-color);
 }

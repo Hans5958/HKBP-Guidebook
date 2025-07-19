@@ -20,9 +20,9 @@ Jika Anda...
 - ...memiliki referensi yang dapat dibagikan...
 - ...memiliki saran atau komentar lain...
 
-..., Anda dapat menyampaikannya di [fitur *issues* pada GitHub](https://github.com/Hans5958/HKBP-Guidebook/issues) atau dengan menulis surel ke saya (alamatnya ada di [GitHub saya](https://github.com/Hans5958)).
+..., Anda dapat menyampaikannya di [fitur *issues* pada GitHub](https://github.com/Hans5958/HKBP-Guidebook/issues){target="_blank"} atau dengan menulis surel ke saya (alamatnya ada di [GitHub saya](https://github.com/Hans5958){target="_blank"}).
 
-Anda juga dapat memuat [sebuah *pull request*](https://opensource.com/article/19/7/create-pull-request-github), yang nanti akan diperiksa sebelum digabungkan ke dalam repositori utama.
+Anda juga dapat memuat [sebuah *pull request*](https://opensource.com/article/19/7/create-pull-request-github){target="_blank"}, yang nanti akan diperiksa sebelum digabungkan ke dalam repositori utama.
 
 ## Hak cipta
 
