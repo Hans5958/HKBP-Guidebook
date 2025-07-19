@@ -120,7 +120,7 @@ Jika seorang pelayan tahbisan dikenakan siasat gereja dan kemudian bertobat dan 
 
 ### 1. Bentuk Penggembalaan dan Pemberian sanksi
 
-Tuhan Yesus secara jelas mengajarkan kepada para murid-Nya tentang penggembalaan, Ia mengatakan dalam[^Yohanes 21:17] kepada Petrus: "Gembalakanlah domba-dombaku". Dalam[^Matius 18:15-17] dikatakan "Apabila saudaramu berbuat dosa, tegorlah dia di bawah empat mata. Jika ia mendengarkan nasihatmu engkau telah mendapatnya kembali. Jika ia tidak mendengarkan engkau, bawalah seorang atau dua orang lagi, supaya atas keterangan dua atau tiga orang saksi, perkara itu tidak disangsikan. Jika ia tidak mau mendengarkan mereka, sampaikanlah soalnya kepada jemaat. Dan jika ia tidak mau juga mendengarkan jemaat, pandanglah dia sebagai seorang yang tidak mengenal Allah atau orang kafir"
+Tuhan Yesus secara jelas mengajarkan kepada para murid-Nya tentang penggembalaan, Ia mengatakan dalam [Yohanes 21:17](https://alkitab.mobi/tb/passage/Yoh+21%3A17) kepada Petrus: "Gembalakanlah domba-dombaku". Dalam [Matius 18:15-17](https://alkitab.mobi/tb/passage/Mat+18%3A15-17) dikatakan "Apabila saudaramu berbuat dosa, tegorlah dia di bawah empat mata. Jika ia mendengarkan nasihatmu engkau telah mendapatnya kembali. Jika ia tidak mendengarkan engkau, bawalah seorang atau dua orang lagi, supaya atas keterangan dua atau tiga orang saksi, perkara itu tidak disangsikan. Jika ia tidak mau mendengarkan mereka, sampaikanlah soalnya kepada jemaat. Dan jika ia tidak mau juga mendengarkan jemaat, pandanglah dia sebagai seorang yang tidak mengenal Allah atau orang kafir"
 
 Sebab itu sebelum seseorang jatuh ke dalam dosa, sepatutnyalah penggembalaan sudah dijalankan, supaya tidak ada orang yang dikucilkan dari gereja.
 
@@ -170,7 +170,7 @@ Perlu dihimbau agar para orang tua yang menyekolahkan anak-anak mereka ke sekola
 
 ##### b. Hal-hal yang penting untuk selalu diingatkan:
 
-Dalam Mat. 18:15-17, Tuhan Yesus dengan jelas mengatakan kepada para murid-Nya, agar tetap memperingatkan dan mengajari orang-orang yang melakukan kesalahan dengan melakukan kunjungan sekali atau bahkan dua kali, dengan harapan orang tersebut tidak lagi mengulang perbuatannya yang salah. Oleh karena itu, adalah tidak benar menjalankan sanksi kepada seseorang sebelum dikunjungi terlebih dahulu. Segera setelah mendengar berita sebelum seseorang melakukan pelanggaran, hendaklah orang tersebut dikunjungi dan dinasihati. Banyak orang yang masih mau mendengar nasihat dan akhirnya mengurungkan niatnya untuk melakukan pelanggaran (dosa). Ketika seseorang langsung dijatuhi sanksi sebelum ada usaha untuk memperingatkan dalam hal ini gereja telah melakukan kesalahan, dan sesungguhnya Tuhan tidak berkenan akan hal itu. Bilamana seorang jemaat tidak menghiraukan nasihat yang diberikan, baiklah ia dibawa menghadap pendeta untuk diperingati. Jika sekiranya tetap saja tidak dihiraukan, hendaklah pendeta tersebut bersama dua orang temannya yang lain memperingatinya. Dan bilamana yang bersangkutan tetap bersikeras terhadap segala nasihat yang disampaikan kepadanya, hendaklah ia dihadirkan dalam Rapat Majelis, disanalah diberitahukan sanksi siasat gereja yang harus ia terima. Jika seandainya yang bersangkutan segera membuka hati mengakui kesalahannya dan akan meninggalkannya, nasihat yang diberikan kepadanya menjadi akhir dari pergumulan ini.
+Dalam [Matius 18:15-17](https://alkitab.mobi/tb/passage/Mat+18%3A15-17), Tuhan Yesus dengan jelas mengatakan kepada para murid-Nya, agar tetap memperingatkan dan mengajari orang-orang yang melakukan kesalahan dengan melakukan kunjungan sekali atau bahkan dua kali, dengan harapan orang tersebut tidak lagi mengulang perbuatannya yang salah. Oleh karena itu, adalah tidak benar menjalankan sanksi kepada seseorang sebelum dikunjungi terlebih dahulu. Segera setelah mendengar berita sebelum seseorang melakukan pelanggaran, hendaklah orang tersebut dikunjungi dan dinasihati. Banyak orang yang masih mau mendengar nasihat dan akhirnya mengurungkan niatnya untuk melakukan pelanggaran (dosa). Ketika seseorang langsung dijatuhi sanksi sebelum ada usaha untuk memperingatkan dalam hal ini gereja telah melakukan kesalahan, dan sesungguhnya Tuhan tidak berkenan akan hal itu. Bilamana seorang jemaat tidak menghiraukan nasihat yang diberikan, baiklah ia dibawa menghadap pendeta untuk diperingati. Jika sekiranya tetap saja tidak dihiraukan, hendaklah pendeta tersebut bersama dua orang temannya yang lain memperingatinya. Dan bilamana yang bersangkutan tetap bersikeras terhadap segala nasihat yang disampaikan kepadanya, hendaklah ia dihadirkan dalam Rapat Majelis, disanalah diberitahukan sanksi siasat gereja yang harus ia terima. Jika seandainya yang bersangkutan segera membuka hati mengakui kesalahannya dan akan meninggalkannya, nasihat yang diberikan kepadanya menjadi akhir dari pergumulan ini.
 
 #### b. Pemberian Sanksi (Masa Ujian, Percobaan, Skors)
 
@@ -502,41 +502,44 @@ Untuk itulah di dalam jemaat, diangkat para pelayan tahbisan untuk melaksanakan 
 
 Sembari kita merenungkan perkataan Tuhan Yesus, sebab Ia telah menyerahkan kunci kerajaan sorga kepada gereja-Nya, supaya gereja menghukum dan mengucilkan orang-orang yang tidak mau bertobat. Sebab demikianlah firman Tuhan: "Kepadamu akan kuberikan kunci kerajaan sorga. Apa yang kau ikat di dunia ini akan terikat di surga dan apa yang kau lepaskan di dunia ini akan terlepas di surga".[^Matius 16:19] Tuhan Yesus juga berfirman: "Terimalah Roh Kudus! Jikalau kamu mengampuni dosa orang, dosanya diampuni, dan jikalau kamu menyatakan dosa orang tetap ada, dosanya tetap ada".[^Yohanes 20:22b-23] Amen.
 
-[^Yohanes 10:11]: Yohanes 10:11
-[^Yohanes 10:27-28]: Yohanes 10:27-28
-[^Imamat 19:2 et al]: Imamat 19:2; Yesaya 6:3; Matius 5:48; 1 Petrus 1:15-16
-[^1 Petrus 2:1-2]: 1 Petrus 2:1-2
-[^2 Korintus 5:17]: 2 Korintus 5:17
-[^1 Tesalonika 5:23]: 1 Tesalonika 5:23
-[^Matius 18:15-18; 1 Korintus 14:26]: Matius 18:15-18; 1 Korintus 14:26
-[^Yehezkiel 33:11; 1 Korintus 5:5]: Yehezkiel 33:11; 1 Korintus 5:5
-[^Yehezkiel 3:20; Matius 16:19]: Yehezkiel 3:20; Matius 16:19
-[^Yehezkiel 33:11]: Yehezkiel 33:11
-[^1 Korintus 5:11 et al]: 1 Korintus 5:11; 2 Tesalonika 3:6; Titus 3:10
-[^Yohanes 21:17]: Yohanes 21:17
-[^Matius 18:15-17]: Matius 18:15-17
-[^Matius 16:19 et al]: Matius 16:19; Matius 18:18; Yohanes 20:23
-[^2 Timotius 3:5; Kolose 3:16-17]: 2 Timotius 3:5; Kolose 3:16-17
-[^2 Tesalonika 3:12]: 2 Tesalonika 3:12
-[^1 Korintus 10:31; Roma 14:18]: 1 Korintus 10:31; Roma 14:18
-[^Efesus 5:11]: Efesus 5:11
-[^band. Kel. 20 et al]: bandingkan Keluaran 20; Ulangan 5; Matius 5-7
-[^Ulangan 20:19-20]: Ulangan 20:19-20
-[^Imamat 18:22-23 et al]: Imamat 18:22-23, Imamat 20:13; Ulangan 22:5, 23:17-18; Roma 1:24-27, 1 Korintus 6:9-10
-[^Kejadian 2:18]: Kejadian 2:18
-[^Matius 5:32]: Matius 5:32
+[^Yohanes 10:11]: [Yohanes 10:11](https://alkitab.mobi/tb/passage/Yoh+10%3A11)
+[^Yohanes 10:27-28]: [Yohanes 10:27-28](https://alkitab.mobi/tb/passage/Yoh+10%3A27-28)
+[^Imamat 19:2 et al]: [Imamat 19:2](https://alkitab.mobi/tb/passage/Ima+19%3A2); [Yesaya 6:3](https://alkitab.mobi/tb/passage/Yes+6%3A3); [Matius 5:48](https://alkitab.mobi/tb/passage/Mat+5%3A48); [1 Petrus 1:15-16](https://alkitab.mobi/tb/passage/1Pt+1%3A15-16)
+[^1 Petrus 2:1-2]: [1 Petrus 2:1-2](https://alkitab.mobi/tb/passage/1Pt+2%3A1-2)
+[^2 Korintus 5:17]: [2 Korintus 5:17](https://alkitab.mobi/tb/passage/2Ko+5%3A17)
+[^1 Tesalonika 5:23]: [1 Tesalonika 5:23](https://alkitab.mobi/tb/passage/1Te+5%3A23)
+[^Matius 18:15-18; 1 Korintus 14:26]: [Matius 18:15-18](https://alkitab.mobi/tb/passage/Mat+18%3A15-18); [1 Korintus 14:26](https://alkitab.mobi/tb/passage/1Ko+14%3A26)
+[^Yehezkiel 33:11; 1 Korintus 5:5]: [Yehezkiel 33:11](https://alkitab.mobi/tb/passage/Yeh+33%3A11); [1 Korintus 5:5](https://alkitab.mobi/tb/passage/1Ko+5%3A5)
+[^Yehezkiel 3:20; Matius 16:19]: [Yehezkiel 3:20](https://alkitab.mobi/tb/passage/Yeh+3%3A20); [Matius 16:19](https://alkitab.mobi/tb/passage/Mat+16%3A19)
+[^Yehezkiel 33:11]: [Yehezkiel 33:11](https://alkitab.mobi/tb/passage/Yeh+33%3A11)
+[^1 Korintus 5:11 et al]: [1 Korintus 5:11](https://alkitab.mobi/tb/passage/1Ko+5%3A11); [2 Tesalonika 3:6](https://alkitab.mobi/tb/passage/2Te+3%3A6); [Titus 3:10](https://alkitab.mobi/tb/passage/Tit+3%3A10)
+[^Matius 16:19 et al]: [Matius 16:19](https://alkitab.mobi/tb/passage/Mat+16%3A19); [Matius 18:18](https://alkitab.mobi/tb/passage/Mat+18%3A18); [Yohanes 20:23](https://alkitab.mobi/tb/passage/Yoh+20%3A23)
+[^2 Timotius 3:5; Kolose 3:16-17]: [2 Timotius 3:5](https://alkitab.mobi/tb/passage/2Ti+3%3A5); [Kolose 3:16-17](https://alkitab.mobi/tb/passage/Kol+3%3A16-17)
+[^2 Tesalonika 3:12]: [2 Tesalonika 3:12](https://alkitab.mobi/tb/passage/2Te+3%3A12)
+[^1 Korintus 10:31; Roma 14:18]: [1 Korintus 10:31](https://alkitab.mobi/tb/passage/1Ko+10%3A31); [Roma 14:18](https://alkitab.mobi/tb/passage/Rom+14%3A18)
+[^Efesus 5:11]: [Efesus 5:11](https://alkitab.mobi/tb/passage/Efe+5%3A11)
+[^band. Kel. 20 et al]: bandingkan [Keluaran 20](https://alkitab.mobi/tb/passage/Kel+20); [Ulangan 5](https://alkitab.mobi/tb/passage/Ula+5); [Matius 5-7](https://alkitab.mobi/tb/passage/Mat+5-7)
+[^Ulangan 20:19-20]: [Ulangan 20:19-20](https://alkitab.mobi/tb/passage/Ula+20%3A19-20)
+[^Imamat 18:22-23 et al]: [Imamat 18:22-23](https://alkitab.mobi/tb/passage/Ima+18%3A22-23), [Imamat 20:13](https://alkitab.mobi/tb/passage/Ima+20%3A13); [Ulangan 22:5](https://alkitab.mobi/tb/passage/Ula+22%3A5), [23:17-18](https://alkitab.mobi/tb/passage/Ula+23%3A17-18); [Roma 1:24-27](https://alkitab.mobi/tb/passage/Rom+1%3A24-27), [1 Korintus 6:9-10](https://alkitab.mobi/tb/passage/1Ko+6%3A9-10)
+[^Kejadian 2:18]: [Kejadian 2:18](https://alkitab.mobi/tb/passage/Kej+2%3A18)
+[^Matius 5:32]: [Matius 5:32](https://alkitab.mobi/tb/passage/Mat+5%3A32)
 [^UU Perkawinan]: bandingkan dengan Undang-undang Perkawinan Republik Indonesia no. 1 tahun 1974
-[^lihat 1 Korintus 7:12-13, 39]: lihat 1 Korintus 7:12-13, 39
-[^Ulangan 28:5-6]: Ulangan 28:5-6
-[^1 Tesalonika 4:13-18]: 1 Tesalonika 4:13-18
-[^Galatia 3:28]: Galatia 3:28
-[^Lukas 19:1-7]: Lukas 19:1-7
-[^1 Korintus 12:14-16]: 1 Korintus 12:14-16
-[^1 Timotius 3:3]: 1 Timotius 3:3
-[^Amsal 31:4-6]: Amsal 31:4-6
-[^Kisah Para Rasul 4:12 et al]: Kisah Para Rasul 4:12; 1 Korintus 3:11; Yohanes 14:6
-[^Roma 13:1-7 et al]: Roma 13:1-7; 1 Timotius 2:2; Kisah Para Rasul 5:29; Wahyu 19:16
-[^1 Korintus 7:12-13, 39]: 1 Korintus 7:12-13, 39
-[^Yehezkiel 3:17-19]: Yehezkiel 3:17-19
-[^Matius 16:19]: Matius 16:19
-[^Yohanes 20:22b-23]: Yohanes 20:22b-23
+[^lihat 1 Korintus 7:12-13, 39]: lihat [1 Korintus 7:12-13, 39](https://alkitab.mobi/tb/passage/1Ko+7%3A12-13%2C39)
+[^Ulangan 28:5-6]: [Ulangan 28:5-6](https://alkitab.mobi/tb/passage/Ula+28%3A5-6)
+[^1 Tesalonika 4:13-18]: [1 Tesalonika 4:13-18](https://alkitab.mobi/tb/passage/1Te+4%3A13-18)
+[^Galatia 3:28]: [Galatia 3:28](https://alkitab.mobi/tb/passage/Gal+3%3A28)
+[^Lukas 19:1-7]: [Lukas 19:1-7](https://alkitab.mobi/tb/passage/Luk+19%3A1-7)
+[^1 Korintus 12:14-16]: [1 Korintus 12:14-16](https://alkitab.mobi/tb/passage/1Ko+12%3A14-16)
+[^1 Timotius 3:3]: [1 Timotius 3:3](https://alkitab.mobi/tb/passage/1Ti+3%3A3)
+[^Amsal 31:4-6]: [Amsal 31:4-6](https://alkitab.mobi/tb/passage/Ams+31%3A4-6)
+[^Kisah Para Rasul 4:12 et al]: [Kisah Para Rasul 4:12](https://alkitab.mobi/tb/passage/Kis+4%3A12); [1 Korintus 3:11](https://alkitab.mobi/tb/passage/1Ko+3%3A11); [Yohanes 14:6](https://alkitab.mobi/tb/passage/Yoh+14%3A6)
+[^Roma 13:1-7 et al]: [Roma 13:1-7](https://alkitab.mobi/tb/passage/Rom+13%3A1-7); [1 Timotius 2:2](https://alkitab.mobi/tb/passage/1Ti+2%3A2); [Kisah Para Rasul 5:29](https://alkitab.mobi/tb/passage/Kis+5%3A29); [Wahyu 19:16](https://alkitab.mobi/tb/passage/Why+19%3A16)
+[^1 Korintus 7:12-13, 39]: [1 Korintus 7:12-13, 39](https://alkitab.mobi/tb/passage/1Ko+7%3A12-13%2C39)
+[^Yehezkiel 3:17-19]: [Yehezkiel 3:17-19](https://alkitab.mobi/tb/passage/Yeh+3%3A17-19)
+[^Matius 16:19]: [Matius 16:19](https://alkitab.mobi/tb/passage/Mat+16%3A19)
+[^Yohanes 20:22b-23]: [Yohanes 20:22b-23](https://alkitab.mobi/tb/passage/Yoh+20%3A22-23)
+
+!!! note "Referensi"
+
+   	- https://www.scribd.com/document/721121737/RPP-HKBP-Revisi
+	- https://www.hkbpperawang.org/rpp-hkbp/
