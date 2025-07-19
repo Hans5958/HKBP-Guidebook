@@ -10,7 +10,7 @@
 
 ### Patujolo
 
-Pinuji ma Debata Jahowa na tongtong marmahani bangsoNa sian ari pamilliton najolo i sahat ro di sadari on. Ibana do na mamillit jala manongos AnakNa Jesus Kristus, Parmahan na denggan i (Joh. 10: 11).
+Pinuji ma Debata Jahowa na tongtong marmahani bangsoNa sian ari pamilliton najolo i sahat ro di sadari on. Ibana do na mamillit jala manongos AnakNa Jesus Kristus, Parmahan na denggan i.[^Johannes 10:11]
 
 Ro do Ibana tu portibi on songon Parmahan, ditanda do ganup soara ni na pinarmahanNa. Ibana do Parmahan na denggan. Diseahon do hosana humophop angka birubiruNa. Dijaga do hita sian ragam ni angka huaso na songon rumang ni babiat panoro na naeng mamolgak hita gabe sirang sian Parmahan na denggan i.
 
@@ -24,21 +24,21 @@ Ibana do nampuna hita, dagingta dohot tondinta, ro di sandok artanta nang parsao
 
 Ala ni i gabe margogo ma hita marpanindangion na mangolu maradophon angka huaso na adong di tongatonga ni parsaoranta na marragam i di portibi on, songon i nang maralohon angka debata sileban.
 
-Ai hot do pandohan ni Tuhan Jesus nang tu hita sahat ro di sadari on na mandok: "Ditangihon angka birubirungKu do soarangKu jala hutanda do nasida, diihuthon nasida do Ahu. Gabe Hulehon tu nasida hangoluan salelenglelengna; ndang be mago nasida salelenglelengna jala ndang tarrampas manang ise nasida sian tanganku" (Joh. 10: 27 - 28).
+Ai hot do pandohan ni Tuhan Jesus nang tu hita sahat ro di sadari on na mandok: "Ditangihon angka birubirungKu do soarangKu jala hutanda do nasida, diihuthon nasida do Ahu. Gabe Hulehon tu nasida hangoluan salelenglelengna; ndang be mago nasida salelenglelengna jala ndang tarrampas manang ise nasida sian tanganku".[^Johannes 10:27-28]
 
 Ala ni i do diparmahani jala dipinsang Ibana hita molo manimbil hita sian Hata dohot dalanNa. Ai dilehon do patikNa tu hita na mamboan ngolu na gok pasupasu asa tapangke i di bagasan holong maradophon dongan jolma.
 
-Asa ingkon badia do angka na porsea i, ala badia do Debata na manjou jolma tu harajaonNa (3 Musa 19: 2; Jes. 6: 3; Mat. 5: 48; 1 Pet. 1: 15 - 16). Ala ni i ma ingkon sipasidingon ni na porsea i do dirina nang parsaoranna sian dosa dohot ulaon ni sibolis (1 Petrus 2: 1 - 2).
+Asa ingkon badia do angka na porsea i, ala badia do Debata na manjou jolma tu harajaonNa.[^3Musa 19:2 et al] Ala ni i ma ingkon sipasidingon ni na porsea i do dirina nang parsaoranna sian dosa dohot ulaon ni sibolis.[^1Petrus 2:1-2]
 
-Tama do ingkon unduk hita manjalo parmahanion dohot paminsangon ni Huria i, ai tarajumi do Debata sandiri na patauhon hita marhite Hata dohot patikNa, asa tau hita jongjong songon halak na niasianNa jala na pinarbadiaan ni mudar ni Jesus naung manobus hita gabe jolma na imbaru (2 Kor. 5: 17), huhut patorashon haporseaon so hasurahan paima ro Ibana paduahalihon (1 Tess. 5: 23).
+Tama do ingkon unduk hita manjalo parmahanion dohot paminsangon ni Huria i, ai tarajumi do Debata sandiri na patauhon hita marhite Hata dohot patikNa, asa tau hita jongjong songon halak na niasianNa jala na pinarbadiaan ni mudar ni Jesus naung manobus hita gabe jolma na imbaru,[^2Korint 5:17] huhut patorashon haporseaon so hasurahan paima ro Ibana paduahalihon.[^1Tessalonik 5:23]
 
-Asa ingkon rajumon do ia ulaon parmahanion dohot paminsangon na pinatupa ni huria i, songon ulaula dohot dalan ni Debata do i laho pauliulihon huriaNa di portibi on (Mat. 18: 15 - 18; 1 Kor. 14: 26).
+Asa ingkon rajumon do ia ulaon parmahanion dohot paminsangon na pinatupa ni huria i, songon ulaula dohot dalan ni Debata do i laho pauliulihon huriaNa di portibi on.[^Mateus 18:15-18; 1Korint 14:26]
 
 ### 1. Lapatan ni Ruhut Parmahanion dohot Paminsangon.
 
-Ia ruhut parmahanion dohot paminsangon i, i ma ruhut sidalanhonon laho marmahani dohot maminsang na maralo tu habadiaon ni huria i. Ingkon badia do huria i di portibi on, ala ni i sialoon ni huria i do nasa dosa na niula ni ruasna unang gabe pargasipan di huria i. Ai marhite Ruhut Parmahanion dohot Paminsangon i togutoguon ma angka pardosa anggiat dipauba rohana gabe mangolu ibana muse (Hes. 33: 11; 1 Kor. 5: 5).
+Ia ruhut parmahanion dohot paminsangon i, i ma ruhut sidalanhonon laho marmahani dohot maminsang na maralo tu habadiaon ni huria i. Ingkon badia do huria i di portibi on, ala ni i sialoon ni huria i do nasa dosa na niula ni ruasna unang gabe pargasipan di huria i. Ai marhite Ruhut Parmahanion dohot Paminsangon i togutoguon ma angka pardosa anggiat dipauba rohana gabe mangolu ibana muse.[^Hesekiel 33:11; 1Korint 5:5]
 
-Asa ia sangkap ni Ruhut Parmahanion dohot Paminsangon, i ma laho manogunogu dohot pauliulihon huria i. Dibahen i ganup halak na padalanhonsa naeng manghangoluhon holong ni roha, unang ma songon panguhum sambing ibana dirajumi, alai songon parmahan do tahe na mangaramoti tondi ro di ngolu ni na pinarmahanna (Hes. 3: 20; Mat. 16: 19).
+Asa ia sangkap ni Ruhut Parmahanion dohot Paminsangon, i ma laho manogunogu dohot pauliulihon huria i. Dibahen i ganup halak na padalanhonsa naeng manghangoluhon holong ni roha, unang ma songon panguhum sambing ibana dirajumi, alai songon parmahan do tahe na mangaramoti tondi ro di ngolu ni na pinarmahanna.[^Hesekiel 3:20; Mateus 16:19]
 
 Hombar tusi, adong tolu pangalaho siingoton ni huria laho mandalanhon Ruhut Parmahanion dohot Paminsangon tu pangalaosi:
 
@@ -86,9 +86,9 @@ Deba dosa pangalaosion nunga tuk pinsangon holan marhite sipasingot di jolo ni p
 
 ### 6. Siingoton ni huria mandapothon na hona pinsang, tagan di bagasan ruhut paminsangon
 
-Tongtong do sihobasan ni huria panghobasion parmahanion tu angka na hona pinsang, ai ndang lomo roha ni Debata mida hamatean ni parjahat. (Hes.33:11). Ndang jolma sapalsapal/na so marguna, jala ndang songon musu nasida rajumon. Diingot Pandita, Guru, Sintua, Evangelis, Parjamita Ina, Diakones, dohot natorop ma manangianghonsa, ai ingkon ingoton do, umbahen dipinsang huria ibana, anggiat mulak nian ibana sian haliluonna. Ala ni i sitopoton do ibana, sipaingoton nang pe jogal rohana. Ingkon naeng hilalaonna holong ni roha ni parmahan i di ibana, anggiat olo gabe dauk rohana. Naeng do mulak parjahat i tinaluhon ni holong ni roha. Manang beha pe uhum dihonahon tu parsala, jadi do ibana marminggu, siarahononhon do tahe, anggiat unang ditadingkon parmingguon i. Ai beha ma ibana mulak ia so jolo ditangihon Hata ni Debata.
+Tongtong do sihobasan ni huria panghobasion parmahanion tu angka na hona pinsang, ai ndang lomo roha ni Debata mida hamatean ni parjahat.[^Hesekiel 33:11] Ndang jolma sapalsapal/na so marguna, jala ndang songon musu nasida rajumon. Diingot Pandita, Guru, Sintua, Evangelis, Parjamita Ina, Diakones, dohot natorop ma manangianghonsa, ai ingkon ingoton do, umbahen dipinsang huria ibana, anggiat mulak nian ibana sian haliluonna. Ala ni i sitopoton do ibana, sipaingoton nang pe jogal rohana. Ingkon naeng hilalaonna holong ni roha ni parmahan i di ibana, anggiat olo gabe dauk rohana. Naeng do mulak parjahat i tinaluhon ni holong ni roha. Manang beha pe uhum dihonahon tu parsala, jadi do ibana marminggu, siarahononhon do tahe, anggiat unang ditadingkon parmingguon i. Ai beha ma ibana mulak ia so jolo ditangihon Hata ni Debata.
 
-Alai tutu di balian ni huria do ibana rajumon (1 Kor. 5: 11; 2 Tess. 3: 6; Tit. 3: 10). Naeng do dipanghilalahon huria i tu parsala i asa ditanda ibana hahuranganna paboa na so haposan ibana, ndang sitangihononhon dope hatana di huria. Saleleng adong dope ruas ni huria di bagasan paminsangon, songon utang ma i di na sahuria i. Ndang jadi mansohot nasida mangalului dalan manogunogu na lilu asa mulak tu hasintongan.
+Alai tutu di balian ni huria do ibana rajumon.[^1Korint 5:11 et al] Naeng do dipanghilalahon huria i tu parsala i asa ditanda ibana hahuranganna paboa na so haposan ibana, ndang sitangihononhon dope hatana di huria. Saleleng adong dope ruas ni huria di bagasan paminsangon, songon utang ma i di na sahuria i. Ndang jadi mansohot nasida mangalului dalan manogunogu na lilu asa mulak tu hasintongan.
 
 #### Taringot tu na hona Ruhut Parmahanion dohot Paminsangon:
 
@@ -118,7 +118,7 @@ Molo hona Ruhut Parmahanion dohot Paminsangon sasahalak partohonon di huria, ala
 
 ### 1. Pangalaho ni parmahanion dohot paminsangon i
 
-Tangkas do diajari Tuhan Jesus siseanNa taringot tu parmahanion i, ai didok do di Joh. 21: 17 tu si Petrus: "Parmahani ma angka birubirungKu". Jala di Mat. 18:15-17 didok: "Molo mardosa donganmi, topot jala ajari ibana, holan hamu padua. Molo ditangihon ho, dapot ho do ibana gabe donganmu muse. Alai anggo so ditangihon ho, arahon ma donganmu sada manang dua, asa hinatindangkon ni dua manang tolu halak nasa hata. Alai molo so ditangihon nang nasida, paboa ma tu na sahuria i. Molo so ditangihon nang huria i, etong ma ibana songon parbegu".
+Tangkas do diajari Tuhan Jesus siseanNa taringot tu parmahanion i, ai didok do di[^Johannes 21:17] tu si Petrus: "Parmahani ma angka birubirungKu". Jala di[^Mateus 18:15-17] didok: "Molo mardosa donganmi, topot jala ajari ibana, holan hamu padua. Molo ditangihon ho, dapot ho do ibana gabe donganmu muse. Alai anggo so ditangihon ho, arahon ma donganmu sada manang dua, asa hinatindangkon ni dua manang tolu halak nasa hata. Alai molo so ditangihon nang nasida, paboa ma tu na sahuria i. Molo so ditangihon nang huria i, etong ma ibana songon parbegu".
 
 Ala ni i tagan so saut dope mardosa sasahalak, patut do mardalan parmahanion asa unang masa nian na bali manang haruar sian huria i.
 
@@ -126,7 +126,7 @@ Ala marsibalgai do panghorhon ni sala manang dosa i, naeng ma manat angka parhal
 
 Ai ragam do dosa i. Adong do i dosa na so tinuntun, dosa ala na tarpaksa, dosa ala ni na ginintalan, dosa na tarsor, adong muse dosa naung sinangkapan hian, nang na tinuntun pe.
 
-Anggo panghorhon ni dosa manang pangalaosion i, manorusi do i sahat tu harohaon ni jolma (kejiwaan), parsaoran di masyarakat, songon i nang tu sundut na mangihut nang tu sude jolma pe. Dilehon Tuhan Jesus do huaso tu angka siseanNa i manesa dohot pahothon dosa ni angka pardosa marguru tu dosanasida be (Mat. 16: 19; 18: 18; Joh. 20: 23). Alai sijangkonon do mulak pardosa tu tongatonga ni Huria marhitehite na papatarhon hasesaan ni dosa di Huria i.
+Anggo panghorhon ni dosa manang pangalaosion i, manorusi do i sahat tu harohaon ni jolma (kejiwaan), parsaoran di masyarakat, songon i nang tu sundut na mangihut nang tu sude jolma pe. Dilehon Tuhan Jesus do huaso tu angka siseanNa i manesa dohot pahothon dosa ni angka pardosa marguru tu dosanasida be.[^Mateus 16:19 et al] Alai sijangkonon do mulak pardosa tu tongatonga ni Huria marhitehite na papatarhon hasesaan ni dosa di Huria i.
 
 Balga do asi ni roha ni Tuhan Jesus manjangkon pardosa na manolsoli rohana; alai laos balga do uhum nang rimas ni Debata dompak halak na jogal roha dohot pangansi. Molo dihaburjuhon Huria i maminsang angka pangalaosi, lam ias ma parsaoran i, gabe denggan pangalahona, tau sitiopon ni angka na so tang dope haporseaonna. Badia ma Huria i nang idaon ni angka parugamo na asing molo dipadao pangalaho ni angka siparsala i. Alai molo dipasombu do, ramun ma Huria ni halak Kristen di roha ni angka parbegu nang parugamo na asing.
 
@@ -146,7 +146,7 @@ Adong na dipaingot, adong do na diskorsing, adong do nang na dipecat. Mangihutho
 
 Porlu do bahenonta panorangion di pangantusion ni lapatan dohot tujuan ni Ruhut Parmahanion dohot Paminsangon.
 
-Asa molo madabu uhum, unang dirajumi ruas i songon paksaan dohot uhuman sambing, alai tanggungjawab ni sandok ruas do mangargahon dohot padalanhon Ruhut Parmahanion dohot Paminsangon i. Ingkon dihilala ganup ruas ni Huria do, ia Ruhut Parmahanion dohot Paminsangon i dalan ni Huria i do i mangaramoti, marmahani, papitahon Huria i dohot manogunogu ganup halak tu ngolu Kristen na marojahan tu Hata ni Debata (2 Tim. 3: 5; Kol. 3: 16 - 17).
+Asa molo madabu uhum, unang dirajumi ruas i songon paksaan dohot uhuman sambing, alai tanggungjawab ni sandok ruas do mangargahon dohot padalanhon Ruhut Parmahanion dohot Paminsangon i. Ingkon dihilala ganup ruas ni Huria do, ia Ruhut Parmahanion dohot Paminsangon i dalan ni Huria i do i mangaramoti, marmahani, papitahon Huria i dohot manogunogu ganup halak tu ngolu Kristen na marojahan tu Hata ni Debata.[^2Timoteus 3:5; Kolosse 3:16-17]
 
 Denggan do sude ruas ni Huria mangantusi jala umboto Ruhut Parmahanion dohot paminsangon i marhitehite boaboa, ai naeng ganup nasida rade manjalo ruhut na mangonai tu nasida manghorhon tu hamubaon ni roha.
 
@@ -154,9 +154,9 @@ Naeng do ganup ruas ni Huria umboto jala mangantusi lapatan ni Patik ni Debata, 
 
 ##### a. Ala ni i patut do:
 
-1. Togutoguon do ruas ni Huria i tu habuluson mulaulaon (2 Tes. 3: 12) jala unang diula ulaon na maralo tu Hata ni Debata.
+1. Togutoguon do ruas ni Huria i tu habuluson mulaulaon[^2Tessalonik 3:12] jala unang diula ulaon na maralo tu Hata ni Debata.
 
-2. Togutoguon do ruas ni Huria asa nasa pambahenanna bahen hasangapon dohot pujipujian tu Debata, isarana marhite tumpakna, peleanna, guguanna tu Huria dohot parsaoranna tu masyarakat na humaliangsa. Angka ulaon sisongon i do mambahen angur hakristenon gabe tartogu ganup halak laho pasangap Debata (1 Kor. 10:31; Rom. 14:18).
+2. Togutoguon do ruas ni Huria asa nasa pambahenanna bahen hasangapon dohot pujipujian tu Debata, isarana marhite tumpakna, peleanna, guguanna tu Huria dohot parsaoranna tu masyarakat na humaliangsa. Angka ulaon sisongon i do mambahen angur hakristenon gabe tartogu ganup halak laho pasangap Debata.[^1Korint 10:31; Rom 14:18]
 
 3. Nang parhalado ni Huria pe patut do togutoguon umboto Aturan ni Huria, Konfessi nang Ruhut Parmahanion dohot Paminsangon ni Huria asa unang adong na sala padalanhonsa.
 
@@ -164,7 +164,7 @@ Naeng do ganup ruas ni Huria umboto jala mangantusi lapatan ni Patik ni Debata, 
 
 Sijagahononhon angka pikiran dohot sangkap na paholang hita sian Debata dohot sian Hata na Badia i, angka na naeng manirang hita sian Huria dohot angka roha na manegai/mangalo dos ni roha (Rapot) ni huria i.
 
-Molo adong pangalaho na masa di masyarakat umum na maralo tu Patik dohot haporseaon ni Huria, manang hagogoon na naeng manuruk tu tongatonga ni Huria, isarana, hamajuon saonari marhite hasipelebeguon na modern, na mamboan pelean parsantabian (sesajen), mambahen parsaoran/panghataion dohot angka na monding, ulaon pesta adat na nirajuman pangalapan tua na so mardomu tu parbue ni haporseaon, hamoraon dohot hasangapon tu diri na so marojahan tu Hata ni Debata, songon i nang na mambahen Almanak gabe parhalaan, pengguguran kandungan dengan sengaja, kumpul kebo, korupsi, pinda ndang mamboan surat parhuriaonna dohot angka na mangulahon tortor hasipelebeguon dohot angka na suman tusi (Epesus 5: 11).
+Molo adong pangalaho na masa di masyarakat umum na maralo tu Patik dohot haporseaon ni Huria, manang hagogoon na naeng manuruk tu tongatonga ni Huria, isarana, hamajuon saonari marhite hasipelebeguon na modern, na mamboan pelean parsantabian (sesajen), mambahen parsaoran/panghataion dohot angka na monding, ulaon pesta adat na nirajuman pangalapan tua na so mardomu tu parbue ni haporseaon, hamoraon dohot hasangapon tu diri na so marojahan tu Hata ni Debata, songon i nang na mambahen Almanak gabe parhalaan, pengguguran kandungan dengan sengaja, kumpul kebo, korupsi, pinda ndang mamboan surat parhuriaonna dohot angka na mangulahon tortor hasipelebeguon dohot angka na suman tusi.[^Epesus 5:11]
 
 Sisosohononhon do tu natoras ni dakdanak na pasikolahon ianakhonna tu parsikolaan ni parugamo na asing asa dijamothon nasida di sikola i unang gabe lipe (muba) haporseaonna.
 
@@ -196,7 +196,7 @@ Dohonon ni Pandita i ma tu ibana, na so tarbahen sesa dosana. Sitingtinghonon do
 
 1. Molo ruas do na marsala i, Rapot Parhalado do mambahen paminsangon i tinolopan ni Pandita Resort.
 
-b.Molo partohonan do na marsala i, Rapot ni donganna satohonan do mambahen paminsangon i:
+1. Molo partohonan do na marsala i, Rapot ni donganna satohonan do mambahen paminsangon i:
 
 	1. Tu Sintua, donganna Sintua na sahuria i do manimbangi niuluhon ni Pandita.
 
@@ -210,13 +210,15 @@ b.Molo partohonan do na marsala i, Rapot ni donganna satohonan do mambahen pamin
 
 	1. Tu Partohonan Pandita songon on ma:
 
-	1. 2. Molo hasalaan na mardomu tu tohonan do, Rapot Pandita sadistrik na niuluhon ni Praeses niadopan ni Ketua Rapot Pandita do manimbangisa.
+		1. Hasalaan na mardomu tu administrasi, Pucuk Pimpinan ma padalanhon paminsangon i.
 
-	1. 3. Molo na mardomu tu poda haporseaon do, Rapot Pandita Hadomuan ma manimbangi dohot padalanhon paminsangon i.
+		2. Molo hasalaan na mardomu tu tohonan do, Rapot Pandita sadistrik na niuluhon ni Praeses niadopan ni Ketua Rapot Pandita do manimbangisa.
+
+		3. Molo na mardomu tu poda haporseaon do, Rapot Pandita Hadomuan ma manimbangi dohot padalanhon paminsangon i.
 
 ## III. Rumang ni Pangalaosion Na Maralo tu Patik ni Debata
 
-Marhite panandaon di Patik ni Debata di bagasan Buku na Badia i dohot Konfessi ni Hurianta lam nalnal do idaonta angka rumangrumang ni dosa sipasidingon (paheba 2 Musa 20; 5 Musa 5; Mat. 5-7).
+Marhite panandaon di Patik ni Debata di bagasan Buku na Badia i dohot Konfessi ni Hurianta lam nalnal do idaonta angka rumangrumang ni dosa sipasidingon.[^2Musa 20 et al]
 
 ### 1. Mangonai tu Patik Parjolo dohot Paduahon (Pangoloion di Debata).
 
@@ -262,7 +264,7 @@ Angka na so pasangaphon natorasna:
 
 1. Na tois marabit; na gere/gemor mangkuling. Parhata barangsi, na girgir manonton film porno (sisungguli hagiot ni daging).
 
-1. Na mangabing, na paabinghonsa, na mangolu sian ulaon parmainanon (germo) dohot na manghangoluhon ulaon parmainanon (pekerja seks). Na marlangka pilit, na marsiduadua, na palahohon jolmana, na mahilolong, ro di angka na mangurupi di ulaon na jat i. Songon i muse na homo sex (parmainanon ni baoa tu baoa dohot parmainanon ni boruboru tu boruboru). Pedofilia, parmainanon marhite na manegai dakdanak, dohot pangalaho parmainanon maradophon hewan, pahanpahanan. Hahisapon dohot nasa ulaon hailaon (3 Musa 18:22-23, 3 Musa 20:13; 5 Musa 22:5, 23:17-18; Rom 1: 24-27, 1 Korint 6:9-10)
+1. Na mangabing, na paabinghonsa, na mangolu sian ulaon parmainanon (germo) dohot na manghangoluhon ulaon parmainanon (pekerja seks). Na marlangka pilit, na marsiduadua, na palahohon jolmana, na mahilolong, ro di angka na mangurupi di ulaon na jat i. Songon i muse na homo sex (parmainanon ni baoa tu baoa dohot parmainanon ni boruboru tu boruboru). Pedofilia, parmainanon marhite na manegai dakdanak, dohot pangalaho parmainanon maradophon hewan, pahanpahanan. Hahisapon dohot nasa ulaon hailaon.[^3Musa 18:22-23 et al]
 
 ### 7. Mangonai tu Patik Paualuhon (panangkoon)
 
@@ -292,7 +294,7 @@ Ingkon sasoara sandok parhalado maminsang angka parjahat sisongon i, unang rarat
 
 ### 1. Parbagason
 
-Dung ditompa jolma i, didok Ibana ma: "Ndang jadi punjung jolma i; Hubahen ma di ibana sada pangurupina bahen donganna" (1 Musa 2:18). Angkup ni i didok Tuhan Jesus do di Mat. 5:32: "Ganup na palahohon na niolina, ia so ala ni na marmainan, na palangkuphonsa do. Pangalangkup do nang na mambuat na sirang i". Antong na pinadomu ni Debata, ndang jadi sirangon ni jolma. Hombar tu ruhut habadiaon dohot partanggung-jawaban di parsaripeon ni hita halak Kristen, diaturhon hurianta ma:
+Dung ditompa jolma i, didok Ibana ma: "Ndang jadi punjung jolma i; Hubahen ma di ibana sada pangurupina bahen donganna".[^1Musa 2:18] Angkup ni i didok Tuhan Jesus do di[^Mateus 5:32] "Ganup na palahohon na niolina, ia so ala ni na marmainan, na palangkuphonsa do. Pangalangkup do nang na mambuat na sirang i". Antong na pinadomu ni Debata, ndang jadi sirangon ni jolma. Hombar tu ruhut habadiaon dohot partanggung-jawaban di parsaripeon ni hita halak Kristen, diaturhon hurianta ma:
 
 a.Molo naeng mamungka pardongan saripeon, ingkon jolo tuk do umur ni baoa i 19 (sampulu sia) taon, jala boruboru i 16 (sampulu onom) taon. Hombar do i tu na niaturhon ni pamarenta Republik Indonesia di Undang-undang Perkawinan. Molo asing sian hatontuan i (isara ni umur, tingki, panolopion ni natoras dohot pangalaho na asing), holan Praeses di Distrik i do na boi mangalehon dispensasi.
 
@@ -322,7 +324,7 @@ Ianggo catatan sipil urusan ni pamarenta do i. Alai ingkon paingoton ni Huria do
 
 	1. Adong surat panolopion sian paranak dohot parboru, manang sian pangamai (wali)
 
-	1. Ditangkasi Pandita i ma sipasupasuon i. Tung sura ndang panolopi natoras manang pangamai (wali) pe, ianggo dung tuk umur ni baoa i nang boruboru i duapulusada taon be, boi do nasida pasupasuon (patudos tu Undang-undang Perkawinan 	1. No. 1/1974).
+	1. Ditangkasi Pandita i ma sipasupasuon i. Tung sura ndang panolopi natoras manang pangamai (wali) pe, ianggo dung tuk umur ni baoa i nang boruboru i duapulusada taon be, boi do nasida pasupasuon.[^UU Perkawinan]
 
 1. Ndang jadi mambuat boru sahalak baoa na pasirangkon, saleleng so muli dope tungganeboruna hian. Tarpasahat do tu ibana pasupasu parbagason, manang molo lias ibana sian hasalaan siala ni parsirangon i, manang molo naung sidung uhum parhuriaon. Suang songon i do nang tu boruboru na sirang.
 
@@ -332,7 +334,7 @@ Ianggo catatan sipil urusan ni pamarenta do i. Alai ingkon paingoton ni Huria do
 
 1. Sipinsangon do parsaripeon roharoha na digoari kumpul kebo manang samen-level, nang na ginoaran kawin kontrak pe.
 
-1. Sitingtinghonon do na so etongon be ruas ni Hurianta halak na marsaripe di balian ni Huria, na marsaripe holan marhite catatan sipil, manang ala na parugamo na asing pe hamulianna, manang niolina umbahen diulahon songon i (ida 1 Kor. 7: 12-13 + 39). Alai tarjalo do nasida mulak tu Huria dung jolo ditolopi rapot ni parhalado jala dung marguru manopoti.
+1. Sitingtinghonon do na so etongon be ruas ni Hurianta halak na marsaripe di balian ni Huria, na marsaripe holan marhite catatan sipil, manang ala na parugamo na asing pe hamulianna, manang niolina umbahen diulahon songon i.[^1Korint 7:12-13, 39] Alai tarjalo do nasida mulak tu Huria dung jolo ditolopi rapot ni parhalado jala dung marguru manopoti.
 
 n.Sipinsangon do parsaripeon na holan manjalo pasupasu raja.
 
@@ -414,7 +416,7 @@ Naeng ma tangkas parmahanion ni Parhalado ni Huria i, manogunogu jolma tu panghi
 
 	1. Asa sitiroan do molo adong na pamasa sijagaron, sanggul marata uju monding natuatua. 
 	
-		Unang masa disi ulaon hasipelebeguon, alai ulaon kebudayaan ma i huhut naeng hatindanghononhon, Debata do naung pasahathon pasupasu naung jinalo ni pinompar ni natuatua i tagan di ngoluna, nang marhite pasupasu na pinangidona sian Debata Jahowa tu pangapudian ni angka pomparanna. Holan Debata Jahowa do tuk pangapudian ni angka pomparanna. Holan Debata Jahowa do tahe na tuk pasauthon pasupasu i laho ruar nang laho bongot pe, songon na hinatindanghon ni si Musa (5 Musa 28: 5 - 6). I ma na ingkon torang tarida/tarbege di na masa ulaon i.
+		Unang masa disi ulaon hasipelebeguon, alai ulaon kebudayaan ma i huhut naeng hatindanghononhon, Debata do naung pasahathon pasupasu naung jinalo ni pinompar ni natuatua i tagan di ngoluna, nang marhite pasupasu na pinangidona sian Debata Jahowa tu pangapudian ni angka pomparanna. Holan Debata Jahowa do tuk pangapudian ni angka pomparanna. Holan Debata Jahowa do tahe na tuk pasauthon pasupasu i laho ruar nang laho bongot pe, songon na hinatindanghon ni si Musa.[^5Musa 28:5-6] I ma na ingkon torang tarida/tarbege di na masa ulaon i.
 
 	1. Sitiroan do, unang ma sai diharingkothon ruas ni Huria i na pajongjong tugu, ala ndang denggan panghorhonna:
 
@@ -428,7 +430,7 @@ Tumagon ma tapauli tugu na mangolu isara pajongjong parsikolaan, gareja, koperas
 
 Alai molo tung ingkon masa ma na pajongjong tugu ala porlu patuduhon hasadaon ni ompu, jumolo ma tarida hasadaon di bagasan Kristus paboahon na rumar do tanoman i ala naung hehe Tuhan jala paheheonNa hita sian na mate.
 
-I ma tahe ruhutruhut na umarga di hasadaon ni sude marga, houm, dohot bangso pe, songon hasadaon ni pamatang ni Kristus i di portibi on di bagasan HuriaNa i. Ia dibagi pe burukburuk ni na mate, ndada na gabe i pasingkop lungun ni roha. Panghirimon di ari ni Tuhan i do na tarbahen pasingkop lungun na di bagasan rohanta i, di na rap manomunomu hita di ari ni Tuhan i (1 Tes. 4: 13 - 18).
+I ma tahe ruhutruhut na umarga di hasadaon ni sude marga, houm, dohot bangso pe, songon hasadaon ni pamatang ni Kristus i di portibi on di bagasan HuriaNa i. Ia dibagi pe burukburuk ni na mate, ndada na gabe i pasingkop lungun ni roha. Panghirimon di ari ni Tuhan i do na tarbahen pasingkop lungun na di bagasan rohanta i, di na rap manomunomu hita di ari ni Tuhan i.[^1Tessalonik 4:13-18]
 
 ### 5. Mangongkal holi
 
@@ -458,7 +460,7 @@ Ganup gondang naeng ma dimatamatai jala ingkon dipaujung di bagasan tangiang.
 
 ### 7. Taringot tu Arta Teanteanan
 
-1. Sitogutoguon do ruas ni Huria i, jala gomos paboaon tu nasida, paboa na rap marhak do anak dohot boru diarta warisan tinadinghon ni natorasna (Gal. 3: 28).
+1. Sitogutoguon do ruas ni Huria i, jala gomos paboaon tu nasida, paboa na rap marhak do anak dohot boru diarta warisan tinadinghon ni natorasna.[^Galatia 3:28]
 
 1. Molo naung jumolo ama monding maninggalhon ina na maranak marboru, unang ma dibagibagi arta warisan molo metmet dope angka dakdanak i. Alai na boi do lehonon ni ina i panjaean ni angka gellengna na magodang hombar tu ringkotna.
 
@@ -470,7 +472,7 @@ Ganup gondang naeng ma dimatamatai jala ingkon dipaujung di bagasan tangiang.
 
 Ia juji i ma meammeam, lalaplalap na pasuda tingki dohot hepeng, na manegai harohaon, rumatangga dohot ulaon. Sipasingoton do nasa na mangulahon juji dohot na manjabuisa. Alai molo so tarpasingot be, pinsangon ma. Lam marnipis do haporseaon bahenon ni juji, ala marohajan tu nasip dohot sibaran do halak na mangulahon sisongon i.
 
-Hinaroa ni parjujion, i ma na sai holan mangalului pangomoan, alai rugi halak dibahen, mate ma harohaon dohot panghilalaan na marsiurupan. Siluluan do pangomoan na tingkos i marhite haporseaon di ulaonniba (Luk. 19: 1-7), huhut ingkon adong roha na marpanarihon di dongan jolma (1 Kor. 12:14-16).
+Hinaroa ni parjujion, i ma na sai holan mangalului pangomoan, alai rugi halak dibahen, mate ma harohaon dohot panghilalaan na marsiurupan. Siluluan do pangomoan na tingkos i marhite haporseaon di ulaonniba,[^Lukas 19:1-7] huhut ingkon adong roha na marpanarihon di dongan jolma.[^1Korint 12:14-16]
 
 ### 2. Pamunu
 
@@ -480,7 +482,7 @@ Na boi do jaloon nasida mulak tu huria molo dung torang panolsolion dohot hamuba
 
 ### 3. Parmabuk dohot parganja
 
-Sipasingoton jala sipinsangon do parmabuk dohot parganja, narkotik, morpin dohot angka na suman tusi. Sisosoan do dohot natorasna dohot keluargana laho marmahani dohot mangubatisa. Manghorhon mara na balga do molo masa parmabuhon (1 Tim. 3: 3) dohot parganjaon. Torus do angka halak sisongon i gabe hatagian, ormus, ndang boi sonang rohana, ndang diantusi be mulaulaon, ai nunga disegai dirina. Ndang hot be panatapanna, tunduk ma ngoluna tu halilian ni rohana sandiri, boban na dokdok nama mandondoni rohana jala lupa di uhum hasintongan (Poda 31: 4 - 6).
+Sipasingoton jala sipinsangon do parmabuk dohot parganja, narkotik, morpin dohot angka na suman tusi. Sisosoan do dohot natorasna dohot keluargana laho marmahani dohot mangubatisa. Manghorhon mara na balga do molo masa parmabuhon[^1Timoteus 3:3] dohot parganjaon. Torus do angka halak sisongon i gabe hatagian, ormus, ndang boi sonang rohana, ndang diantusi be mulaulaon, ai nunga disegai dirina. Ndang hot be panatapanna, tunduk ma ngoluna tu halilian ni rohana sandiri, boban na dokdok nama mandondoni rohana jala lupa di uhum hasintongan.[^Poda 31:4-6]
 
 Sipabalion do ruas naung tangkas tarboto sigadis ganja, narkotik, morpin, dohot angka na suman tusi, dung adong keputusan ni pengadilan negeri.
 
@@ -490,11 +492,11 @@ Sipabalion do ruas naung tangkas tarboto sigadis ganja, narkotik, morpin, dohot 
 
 	Siingoton do, asa boi tongtong jumpang ngolu ni Huria na marpanindangion di tonga ni negara.
 
-2. Ndang jadi lapathononhon hata "kerukunan umat beragama" tu pangantusion "dos do sude ugamo i". Ai tong do marsihohot hita di haporseaonta, holan di bagasan Jesus jala marhite Ibana haluaon, hasintongan dohot hatutuon i (Ulaon 4: 12; 1 Kor. 3: 11; Joh. 14: 6).
+2. Ndang jadi lapathononhon hata "kerukunan umat beragama" tu pangantusion "dos do sude ugamo i". Ai tong do marsihohot hita di haporseaonta, holan di bagasan Jesus jala marhite Ibana haluaon, hasintongan dohot hatutuon i.[^UlaonNiApostel 4:12 et al]
 
-3. Siingotonta do hajongjonganta di angka upacara nasional, paboa na halak Kristen do hita, na tongtong marsihohot di bagasan pangoloion tu Kristus Raja ni angka raja jala Tuhan ni angka tuan (Rom 13: 1-7; 1 Tim. 2: 2; Ulaon 5: 29; Pangk. 19: 16). Asa di na martangiang hita, i ma tangiang ni sada ruas ni Huria di sada negara na mangokui agama Kristen, songon sada ugamo na niokuan ni negara Pancasila. Jala ingkon tangkas do hita martangiang di bagasan Goar ni Jesus Kristus, Ulu ni Huria i.
+3. Siingotonta do hajongjonganta di angka upacara nasional, paboa na halak Kristen do hita, na tongtong marsihohot di bagasan pangoloion tu Kristus Raja ni angka raja jala Tuhan ni angka tuan.[^Rom 13:1-7 et al] Asa di na martangiang hita, i ma tangiang ni sada ruas ni Huria di sada negara na mangokui agama Kristen, songon sada ugamo na niokuan ni negara Pancasila. Jala ingkon tangkas do hita martangiang di bagasan Goar ni Jesus Kristus, Ulu ni Huria i.
 
-4. Sitingtinghonon do na so ruas be ianakhon ni Huria na "kawin kontrak" dohot na holan "kawin catatan sipil" dohot boru manang anak sian parugamo na asing, ala ndang pangantoi Huria di parbagasonna i (1 Kor. 7:12-13+39). Alai tarjalo do nasida mulak tu Huria dung adong pangidoanna tu parhalado jala dung olo marguru.
+4. Sitingtinghonon do na so ruas be ianakhon ni Huria na "kawin kontrak" dohot na holan "kawin catatan sipil" dohot boru manang anak sian parugamo na asing, ala ndang pangantoi Huria di parbagasonna i.[^1Korint 7:12-13, 39] Alai tarjalo do nasida mulak tu Huria dung adong pangidoanna tu parhalado jala dung olo marguru.
 
 5. Huria na mamulik do etongon punguan na manimbil sian HKBP, saleleng so diokui HКΒΡ nasida songon sada huria.
 
@@ -506,11 +508,43 @@ Tarjalo do masuk tu Hurianta ruas ni huria na so maralo haporseaonna tu haporsea
 
 Asa naeng tongtong mangolu di Huria i roha na marmahani, songon tangkas ni pamodaion di angka na olo tu hadaulaton tu Debata, ingkon songon i ma tangkas ni paminsangon di angka na so olo tu hangoluan, asa unang adong na mago, ala so ada sipaingot, jala unang marsapata nasida tu Huria i.
 
-Dipabangkit do angka partohonan di Huria i laho mangulahon songon parmahan, ndada songon panguhum sambing. Diingot ma Hata na tarsurat i: "Ia ho anak ni jolma! Nunga hupabangkit ho bahen siparmahan halak Israel, dibahen i sai tangihon ma hata na ruar sian pamanganku, angka sipatolhasonmu palumba nasida sian ahu. Molo hudok tu parjahat i: ingkon mate ho, hape ndang dipalumba ho ibana, jala ndang diapoi ho ibana tumundalhon dalanna na jahat i, asa dapotan hangoluan ibana nian; sai na mate do nian parjahat i di bagasan hajahatonna, alai sian tanganmi do partungguhononku mudarna. Alai anggo dipalumba ho do parjahat i, hape ndang olo ibana tumadingkon hajahatonna i dohot dalanna na jahat i, mate di bagasan hajahatonna ma ibana, alai malua do anggo tondim". (Hesekiel 3: 17-19).
+Dipabangkit do angka partohonan di Huria i laho mangulahon songon parmahan, ndada songon panguhum sambing. Diingot ma Hata na tarsurat i: "Ia ho anak ni jolma! Nunga hupabangkit ho bahen siparmahan halak Israel, dibahen i sai tangihon ma hata na ruar sian pamanganku, angka sipatolhasonmu palumba nasida sian ahu. Molo hudok tu parjahat i: ingkon mate ho, hape ndang dipalumba ho ibana, jala ndang diapoi ho ibana tumundalhon dalanna na jahat i, asa dapotan hangoluan ibana nian; sai na mate do nian parjahat i di bagasan hajahatonna, alai sian tanganmi do partungguhononku mudarna. Alai anggo dipalumba ho do parjahat i, hape ndang olo ibana tumadingkon hajahatonna i dohot dalanna na jahat i, mate di bagasan hajahatonna ma ibana, alai malua do anggo tondim".[^Hesekiel 3:17-19]
 
-Huhut tapahusorhusor na nidok ni Tuhanta Jesus, ai nunga dipasahat anak hinsu ni banuaginjang tu HuriaNa i, asa dipabali angka na so olo paubahon rohana, ai ninna do: "Hulehon pe tu ho anakhinsu ni harajaon banuaginjang i: Nasa na niihotanmi di tano on, na tarihot ma i nang di banua ginjang; jala nasa na pinaluam i di tano on, malua ma i nang di banuaginjang" (Mat. 16:19). Didok Tuhan Jesus dope: "Jalo hamu ma Tondi Parbadia! Molo disesa hamu dosa ni manang ise, naung sesa ma i; molo dipahot hamu dosa ni manang ise, hot do i". (Joh. 20:22b-23). Amen.
+Huhut tapahusorhusor na nidok ni Tuhanta Jesus, ai nunga dipasahat anak hinsu ni banuaginjang tu HuriaNa i, asa dipabali angka na so olo paubahon rohana, ai ninna do: "Hulehon pe tu ho anakhinsu ni harajaon banuaginjang i: Nasa na niihotanmi di tano on, na tarihot ma i nang di banua ginjang; jala nasa na pinaluam i di tano on, malua ma i nang di banuaginjang".[^Mateus 16:19] Didok Tuhan Jesus dope: "Jalo hamu ma Tondi Parbadia! Molo disesa hamu dosa ni manang ise, naung sesa ma i; molo dipahot hamu dosa ni manang ise, hot do i".[^Johannes 20:22b-23] Amen.
 
-!!! note "Referensi"
-
-   	- https://www.scribd.com/document/721121737/RPP-HKBP-Revisi
-	- https://www.hkbpperawang.org/rpp-hkbp/
+[^Johannes 10:11]: Johannes 10:11
+[^Johannes 10:27-28]: Johannes 10:27-28
+[^3Musa 19:2 et al]: 3 Musa 19:2; Jesaya 6:3; Mateus 5:48; 1 Petrus 1:15-16
+[^1Petrus 2:1-2]: 1 Petrus 2:1-2
+[^2Korint 5:17]: 2 Korint 5:17
+[^1Tessalonik 5:23]: 1 Tessalonik 5:23
+[^Mateus 18:15-18; 1Korint 14:26]: Mateus 18:15-18; 1 Korint 14:26
+[^Hesekiel 33:11; 1Korint 5:5]: Hesekiel 33:11; 1 Korint 5:5
+[^Hesekiel 3:20; Mateus 16:19]: Hesekiel 3:20; Mateus 16:19
+[^Johannes 21:17]: Johannes 21:17
+[^Mateus 18:15-17]: Mateus 18:15-17
+[^Mateus 16:19 et al]: Mateus 16:19; 18:18; Johannes 20:23
+[^Hesekiel 33:11]: Hesekiel 33:11
+[^1Korint 5:11 et al]: 1 Korint 5:11; 2 Tessalonik 3:6; Titus 3:10
+[^2Timoteus 3:5; Kolosse 3:16-17]: 2 Timoteus 3:5; Kolosse 3:16-17
+[^2Tessalonik 3:12]: 2 Tessalonik 3:12
+[^1Korint 10:31; Rom 14:18]: 1 Korint 10:31; Rom 14:18
+[^Epesus 5:11]: Epesus 5:11
+[^2Musa 20 et al]: paheba 2 Musa 20; 5 Musa 5; Mateus 5-7
+[^3Musa 18:22-23 et al]: 3 Musa 18:22-23, 3 Musa 20:13; 5 Musa 22:5, 23:17-18; Rom 1:24-27, 1 Korint 6:9-10
+[^1Musa 2:18]: 1 Musa 2:18
+[^Mateus 5:32]: Mateus 5:32
+[^UU Perkawinan]: patudos tu Undang-undang Perkawinan No. 1/1974
+[^1Korint 7:12-13, 39]: ida 1 Korint 7:12-13, 39
+[^5Musa 28:5-6]: 5 Musa 28:5-6
+[^1Tessalonik 4:13-18]: 1 Tessalonik 4:13-18
+[^Galatia 3:28]: Galatia 3:28
+[^Lukas 19:1-7]: Lukas 19:1-7
+[^1Korint 12:14-16]: 1 Korint 12:14-16
+[^1Timoteus 3:3]: 1 Timoteus 3:3
+[^Poda 31:4-6]: Poda 31:4-6
+[^UlaonNiApostel 4:12 et al]: Ulaon ni Apostel 4:12; 1 Korint 3:11; Johannes 14:6
+[^Rom 13:1-7 et al]: Rom 13:1-7; 1 Timoteus 2:2; Ulaon ni Apostel 5:29; Pangungkapon 19:16
+[^Hesekiel 3:17-19]: Hesekiel 3:17-19
+[^Mateus 16:19]: Mateus 16:19
+[^Johannes 20:22b-23]: Johannes 20:22b-23

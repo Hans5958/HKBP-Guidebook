@@ -10,7 +10,7 @@
 
 ### Pendahuluan
 
-Terpujilah Allah yang senantiasa menggembalakan umat-Nya sejak dari zaman pemilihan dahulu hingga pada saat ini. Dia yang memilih dan mengutus anak-Nya Yesus Kristus, Gembala yang baik (Yoh. 10:11).
+Terpujilah Allah yang senantiasa menggembalakan umat-Nya sejak dari zaman pemilihan dahulu hingga pada saat ini. Dia yang memilih dan mengutus anak-Nya Yesus Kristus, Gembala yang baik.[^Yohanes 10:11]
 
 Ia datang ke dunia sebagai Gembala, Ia mengenal masing-masing suara dari domba-domba gembalaan-Nya. Dia adalah Gembala yang baik yang memberikan nyawa-Nya untuk domba-domba-Nya. Dia menjaga kita dari berbagai-ragam kuasa yang menyerupai binatang buas yang hendak menerkam dan memisahkan kita dari Gembala yang baik itu.
 
@@ -24,21 +24,21 @@ Dia-lah yang empuNya kita, tubuh dan roh kita, serta segenap harta dan persekutu
 
 Sebab itu kita memperoleh kekuatan dalam menunjukkan kesaksian yang hidup untuk melawan segala kuasa si jahat yang ada di tengah persekutuan kita di dunia ini dan dalam menghadapi kuasa kegelapan.
 
-Ucapan Yesus tidak berubah hingga pada saat ini, di masa kita sekarang, yang mengatakan: Domba-domba-Ku mendengarkan suara-Ku dan Aku mengenal mereka dan mereka mengikut Aku dan Aku memberikan hidup yang kekal kepada mereka dan mereka pasti tidak akan binasa sampai selama-lamanya, dan seorang pun tidak akan merebut mereka dari tangan-Ku. (Yoh.10:27-28).
+Ucapan Yesus tidak berubah hingga pada saat ini, di masa kita sekarang, yang mengatakan: Domba-domba-Ku mendengarkan suara-Ku dan Aku mengenal mereka dan mereka mengikut Aku dan Aku memberikan hidup yang kekal kepada mereka dan mereka pasti tidak akan binasa sampai selama-lamanya, dan seorang pun tidak akan merebut mereka dari tangan-Ku.[^Yohanes 10:27-28]
 
 Karena itu, Tuhan menggembalakan dan menegur kita apabila kita menyimpang dari firman dan jalan-Nya. Dia memberikan hukum-Nya yang membawa kita kepada kehidupan yang penuh berkat agar kita hidup dalam kasih terhadap sesama manusia.
 
-Karena itu orang percaya harus hidup dalam kekudusan, karena Tuhan Allah yang memanggil manusia ke dalam kerajaan-Nya (Imamat 19:2; Yesaya 6:3; Matius 5:48; 1 Petrus 1:15-16). Sebab itulah orang percaya harus menjauhkan dirinya dan pergaulannya dari dosa dan pekerjaan iblis (1 Petrus 2:1-2).
+Karena itu orang percaya harus hidup dalam kekudusan, karena Tuhan Allah yang memanggil manusia ke dalam kerajaan-Nya.[^Imamat 19:2 et al] Sebab itulah orang percaya harus menjauhkan dirinya dan pergaulannya dari dosa dan pekerjaan iblis.[^1 Petrus 2:1-2]
 
-Hendaknyalah kita dengan rendah hati menerima penggembalaan dan siasat gereja, karena kita mengakui bahwa Tuhan Allah sendirilah yang memampukan kita melalui Firman dan Taurat-Nya, supaya kita layak berdiri sebagai orang yang dikasihi-Nya dan yang dikuduskan oleh darah Kristus dan menebus kita menjadi manusia baru (2 Korintus 5:17), serta mendewasakan iman kepercayaan kita sehingga tidak bercacat sampai kepada kedatangan-Nya yang kedua kali (1 Tesalonika 5:23).
+Hendaknyalah kita dengan rendah hati menerima penggembalaan dan siasat gereja, karena kita mengakui bahwa Tuhan Allah sendirilah yang memampukan kita melalui Firman dan Taurat-Nya, supaya kita layak berdiri sebagai orang yang dikasihi-Nya dan yang dikuduskan oleh darah Kristus dan menebus kita menjadi manusia baru,[^2 Korintus 5:17] serta mendewasakan iman kepercayaan kita sehingga tidak bercacat sampai kepada kedatangan-Nya yang kedua kali.[^1 Tesalonika 5:23]
 
-Maka oleh karena itu harus dipahami bahwa pelayanan penggembalaan dan hukum siasat yang dibuat oleh gereja adalah sebagai alat atau sarana bagi Allah untuk membangun gereja-Nya di dunia ini (Mat. 18:15-18; 1 Kor. 14:26).
+Maka oleh karena itu harus dipahami bahwa pelayanan penggembalaan dan hukum siasat yang dibuat oleh gereja adalah sebagai alat atau sarana bagi Allah untuk membangun gereja-Nya di dunia ini.[^Matius 18:15-18; 1 Korintus 14:26]
 
 ### 1. Pengertian Tatanan Penggembalaan dan Siasat Gereja
 
-Tatanan penggembalaan dan siasat gereja adalah kumpulan sejumlah perangkat aturan yang harus dilaksanakan untuk menggembalakan dan menegur hal-hal yang bertentangan dengan kekudusan gereja. Gereja harus kudus di tengah dunia ini sebab itu gereja harus menentang segala perilaku dosa anggota jemaat agar tidak menjadi batu sandungan bagi jemaat. Sebab melalui Tatanan Penggembalaan dan Siasat Gereja, orang berdosa dituntun supaya bertobat dan memperoleh kehidupan (Yehezkiel 33:11; 1 Korintus 5:5).
+Tatanan penggembalaan dan siasat gereja adalah kumpulan sejumlah perangkat aturan yang harus dilaksanakan untuk menggembalakan dan menegur hal-hal yang bertentangan dengan kekudusan gereja. Gereja harus kudus di tengah dunia ini sebab itu gereja harus menentang segala perilaku dosa anggota jemaat agar tidak menjadi batu sandungan bagi jemaat. Sebab melalui Tatanan Penggembalaan dan Siasat Gereja, orang berdosa dituntun supaya bertobat dan memperoleh kehidupan.[^Yehezkiel 33:11; 1 Korintus 5:5]
 
-Adapun tujuan dari Tatanan Penggembalaan dan Siasat Gereja adalah untuk membimbing dan membangun kehidupan jemaat. Karena itu, setiap pelayan yang menjalankan Tatanan Penggembalaan dan Siasat Gereja ini harus berdasarkan kasih, jangan bertindak seperti seorang hakim, melainkan sebagai gembala yang menjaga roh dan segenap hidup domba-domba gembalaannya (Yehezkiel 3:20; Matius 16:19).
+Adapun tujuan dari Tatanan Penggembalaan dan Siasat Gereja adalah untuk membimbing dan membangun kehidupan jemaat. Karena itu, setiap pelayan yang menjalankan Tatanan Penggembalaan dan Siasat Gereja ini harus berdasarkan kasih, jangan bertindak seperti seorang hakim, melainkan sebagai gembala yang menjaga roh dan segenap hidup domba-domba gembalaannya.[^Yehezkiel 3:20; Matius 16:19]
 
 Sehubungan dengan itu, ada tiga hal yang harus diingat dalam melaksanakan Tatanan penggembalaan dan siasat gereja yaitu:
 
@@ -86,9 +86,9 @@ Sebagian dosa pelanggaran sanksinya cukup dengan menasihati yang bersangkutan di
 
 ### 6. Hal-hal yang harus diperhatikan oleh gereja terhadap mereka yang dikenai siasat.
 
-Gereja harus tetap melakukan pelayanan penggembalaan kepada anggota yang kena siasat gereja, karena Tuhan tidak menghendaki kematian orang berdosa (Yehezkiel 33:11). Jemaat tidak boleh memandang mereka sebagai orang hina yang tidak berguna, maupun sebagai musuh. Pendeta, Guru, Penatua, Evangelis, Bibelvrow, Diakones, dan semua anggota jemaat tetap mendoakannya, karena harus diingat tujuan siasat gereja itu adalah untuk membimbing ia kembali ke jalan yang benar. Sebab itu dia harus dikunjungi, dinasihati walaupun dia berkeras hati. Dia harus merasakan kasih sayang gembala itu terhadap dirinya, sehingga hatinya lunak. Hendaknya orang yang berbuat jahat itu kembali karena ditaklukkan oleh kasih. Seberat apapun hukuman yang dikenakan kepada orang yang melanggar, dia tetap diperbolehkan beribadah di gereja, dan malah perlu diarahkan agar ia tidak meninggalkan peribadatan. Adalah mustahil dia akan kembali, kalau dia tidak mendengar Firman Allah.
+Gereja harus tetap melakukan pelayanan penggembalaan kepada anggota yang kena siasat gereja, karena Tuhan tidak menghendaki kematian orang berdosa.[^Yehezkiel 33:11] Jemaat tidak boleh memandang mereka sebagai orang hina yang tidak berguna, maupun sebagai musuh. Pendeta, Guru, Penatua, Evangelis, Bibelvrow, Diakones, dan semua anggota jemaat tetap mendoakannya, karena harus diingat tujuan siasat gereja itu adalah untuk membimbing ia kembali ke jalan yang benar. Sebab itu dia harus dikunjungi, dinasihati walaupun dia berkeras hati. Dia harus merasakan kasih sayang gembala itu terhadap dirinya, sehingga hatinya lunak. Hendaknya orang yang berbuat jahat itu kembali karena ditaklukkan oleh kasih. Seberat apapun hukuman yang dikenakan kepada orang yang melanggar, dia tetap diperbolehkan beribadah di gereja, dan malah perlu diarahkan agar ia tidak meninggalkan peribadatan. Adalah mustahil dia akan kembali, kalau dia tidak mendengar Firman Allah.
 
-Kendati, status yang bersangkutan dipahami berada di luar jemaat, (1 Korintus 5:11; 2 Tesalonika 3:6; Titus 3:10). Gereja perlu membimbing yang bersangkutan agar dia mengenal kekurangannya bahwa ia tidak dipercaya, perkataannya belum dapat diterima di tengah persekutuan gereja. Selama masih ada anggota jemaat yang berada dalam siasat gereja hal itu merupakan hutang bagi seluruh jemaat. Mereka tidak boleh berhenti mencari jalan untuk membimbing yang sesat agar kembali kepada kebenaran.
+Kendati, status yang bersangkutan dipahami berada di luar jemaat.[^1 Korintus 5:11 et al] Gereja perlu membimbing yang bersangkutan agar dia mengenal kekurangannya bahwa ia tidak dipercaya, perkataannya belum dapat diterima di tengah persekutuan gereja. Selama masih ada anggota jemaat yang berada dalam siasat gereja hal itu merupakan hutang bagi seluruh jemaat. Mereka tidak boleh berhenti mencari jalan untuk membimbing yang sesat agar kembali kepada kebenaran.
 
 #### Tentang orang yang kena Tatanan Penggembalaan dan Siasat gereja:
 
@@ -120,7 +120,7 @@ Jika seorang pelayan tahbisan dikenakan siasat gereja dan kemudian bertobat dan 
 
 ### 1. Bentuk Penggembalaan dan Pemberian sanksi
 
-Tuhan Yesus secara jelas mengajarkan kepada para murid-Nya tentang penggembalaan, Ia mengatakan dalam Yohanes 21:17 kepada Petrus: "Gembalakanlah domba-dombaku". Dalam Matius 18:15-17 dikatakan "Apabila saudaramu berbuat dosa, tegorlah dia di bawah empat mata. Jika ia mendengarkan nasihatmu engkau telah mendapatnya kembali. Jika ia tidak mendengarkan engkau, bawalah seorang atau dua orang lagi, supaya atas keterangan dua atau tiga orang saksi, perkara itu tidak disangsikan. Jika ia tidak mau mendengarkan mereka, sampaikanlah soalnya kepada jemaat. Dan jika ia tidak mau juga mendengarkan jemaat, pandanglah dia sebagai seorang yang tidak mengenal Allah atau orang kafir"
+Tuhan Yesus secara jelas mengajarkan kepada para murid-Nya tentang penggembalaan, Ia mengatakan dalam[^Yohanes 21:17] kepada Petrus: "Gembalakanlah domba-dombaku". Dalam[^Matius 18:15-17] dikatakan "Apabila saudaramu berbuat dosa, tegorlah dia di bawah empat mata. Jika ia mendengarkan nasihatmu engkau telah mendapatnya kembali. Jika ia tidak mendengarkan engkau, bawalah seorang atau dua orang lagi, supaya atas keterangan dua atau tiga orang saksi, perkara itu tidak disangsikan. Jika ia tidak mau mendengarkan mereka, sampaikanlah soalnya kepada jemaat. Dan jika ia tidak mau juga mendengarkan jemaat, pandanglah dia sebagai seorang yang tidak mengenal Allah atau orang kafir"
 
 Sebab itu sebelum seseorang jatuh ke dalam dosa, sepatutnyalah penggembalaan sudah dijalankan, supaya tidak ada orang yang dikucilkan dari gereja.
 
@@ -128,7 +128,7 @@ Karena akibat dari masing-masing kesalahan atau dosa tidak sama, maka dalam pert
 
 Dosa itu beraneka ragam. Ada dosa yang tidak disengaja, dosa karena terpaksa, dosa karena terpengaruh, dosa karena terjebak, dan ada dosa yang direncanakan atau disengaja.
 
-Akibat dari dosa atau pelanggaran itu, mempengaruhi sampai kepada kejiwaan, hubungan dan kekerabatan di tengah masyarakat, maupun kepada generasi selanjutnya dan kepada semua manusia. Tuhan Yesus memberi kuasa kepada para murid-Nya untuk mengampuni atau menetapkan dosa seseorang sesuai dengan kesalahan yang diperbuat (Mat. 16:19; Mat. 18:16; Yoh. 20:23). Namun mereka yang berbuat dosa tetapi bertobat, dapat diterima kembali dengan menyatakan hal itu kepada jemaat.
+Akibat dari dosa atau pelanggaran itu, mempengaruhi sampai kepada kejiwaan, hubungan dan kekerabatan di tengah masyarakat, maupun kepada generasi selanjutnya dan kepada semua manusia. Tuhan Yesus memberi kuasa kepada para murid-Nya untuk mengampuni atau menetapkan dosa seseorang sesuai dengan kesalahan yang diperbuat.[^Matius 16:19 et al] Namun mereka yang berbuat dosa tetapi bertobat, dapat diterima kembali dengan menyatakan hal itu kepada jemaat.
 
 Begitu besar kasih Tuhan Yesus menerima orang yang telah mengakui dan menyesali dosa-dosanya dan sebaliknya demikian besar juga hukum dan murka Tuhan Allah kepada setiap orang yang keras hatinya dan penipu. Jika gereja sungguh-sungguh menegur para anggota yang melanggar maka persekutuan umat makin bersih, perangainya menjadi lebih baik dan dapat menjadi contoh bagi orang lain yang imannya belum kuat. Gereja itu akan semakin kudus dilihat oleh pemeluk agama lain bila perilaku orang yang bersalah itu dijauhkan. Tetapi jika dibiarkan maka gereja menjadi nazis di hati orang pelebegu dan pemeluk agama lain.
 
@@ -146,7 +146,7 @@ Ada yang diberi peringatan, ada skorsing, dan ada yang dipecat. Berdasarkan Alki
 
 #### a. Bimbingan/ penjelasan kepada jemaat
 
-Adalah perlu untuk memberikan penjelasan mengenai makna dan tujuan Tatanan Penggembalaan dan Siasat Gereja. Supaya ketika sebuah sanksi diberikan, anggota jemaat yang tidak memaknainya sebagai sebuah paksaan dan hukuman semata, melainkan seluruh jemaat menyadari tanggungjawabnya untuk menghargai dan menjalankan Tatanan Penggembalaan dan Siasat Gereja. Setiap anggota jemaat harus memahami bahwa Tatanan Penggembalaan dan Siasat Gereja sebagai alat gereja dalam rangka memelihara, menggembalakan, dan memurnikan gereja serta menuntun setiap orang ke jalan hidup yang Kristiani berlandaskan firman Tuhan (2 Tim. 3:5; Kol. 3:16-17).
+Adalah perlu untuk memberikan penjelasan mengenai makna dan tujuan Tatanan Penggembalaan dan Siasat Gereja. Supaya ketika sebuah sanksi diberikan, anggota jemaat yang tidak memaknainya sebagai sebuah paksaan dan hukuman semata, melainkan seluruh jemaat menyadari tanggungjawabnya untuk menghargai dan menjalankan Tatanan Penggembalaan dan Siasat Gereja. Setiap anggota jemaat harus memahami bahwa Tatanan Penggembalaan dan Siasat Gereja sebagai alat gereja dalam rangka memelihara, menggembalakan, dan memurnikan gereja serta menuntun setiap orang ke jalan hidup yang Kristiani berlandaskan firman Tuhan.[^2 Timotius 3:5; Kolose 3:16-17]
 
 Alangkah baik bila seluruh anggota jemaat mamahami dan mengerti Tatanan Penggembalaan dan Siasat Gereja melalui pemberitahuan/penjelasan, sebab dengan demikian diharapkan setiap anggota jemaat dapat menerima sanksi yang dikenakan atas pelanggaran yang mereka lakukan sehingga membuahkan pertobatan.
 
@@ -154,9 +154,9 @@ Kiranya seluruh anggota jemaat mengerti dan memahami arti dan maksud dari Hukum 
 
 ##### Karena itu, sebaiknya:
 
-1. Anggota jemaat haruslah dituntun kepada ketulusan dalam melakukan pekerjaan (2 Tes. 3:12) dan tidak melakukan sesuatu hal yang bertentangan dengan firman Tuhan.
+1. Anggota jemaat haruslah dituntun kepada ketulusan dalam melakukan pekerjaan[^2 Tesalonika 3:12] dan tidak melakukan sesuatu hal yang bertentangan dengan firman Tuhan.
 
-1. Anggota jemaat haruslah dituntun agar setiap tindakannya menjadi kemuliaan dan pujian bagi Tuhan, melalui pemberiannya, persembahannya, iuran kepada gereja serta hubungannya dengan masyarakat sekitar. Hal-hal seperti itu membuat hidup ke-Kristen-an menjadi harum sehingga menjadi ajakan bagi setiap orang untuk memuji Tuhan (1 Kor. 10:31; Rom. 14:18).
+1. Anggota jemaat haruslah dituntun agar setiap tindakannya menjadi kemuliaan dan pujian bagi Tuhan, melalui pemberiannya, persembahannya, iuran kepada gereja serta hubungannya dengan masyarakat sekitar. Hal-hal seperti itu membuat hidup ke-Kristen-an menjadi harum sehingga menjadi ajakan bagi setiap orang untuk memuji Tuhan.[^1 Korintus 10:31; Roma 14:18]
 
 1. Seluruh penatua jemaat (majelis) juga harus dituntun untuk memahami Aturan Gerejawi, Konfesi dan Tatanan Penggembalaan dan Siasat Gereja agar tidak ada yang salah dalam pelaksanaannya.
 
@@ -164,7 +164,7 @@ Kiranya seluruh anggota jemaat mengerti dan memahami arti dan maksud dari Hukum 
 
 Perlu diwaspadai segala pemikiran-pemikiran dan maksud yang dapat menjauhkan kita dari Allah dan firmanNya, hal-hal yang hendak memisahkan kita dari gereja dan niat yang hendak merusak kesatuan jemaat, dan yang menentang hasil keputusan rapat Majelis.
 
-Apabila ada tindakan di tengah-tengah masyarakat umum yang bertentangan dengan Titah (Hukum Tuhan) dan iman kepercayaan gereja, ataupun kuasa yang mencoba menyusup ke dalam gereja, seperti kemajuan yang ada pada saat ini dalam bentuk kekafiran modern, membawa sesajen, mengadakan hubungan percakapan dengan roh-roh orang mati, upacara pesta adat dengan pemahaman sebagai sarana untuk memperoleh berkah yang tidak seturut dengan nilai-nilai kepercayaan, memohon kekayaan dan kemuliaan diri yang tidak berlandaskan firman Allah, begitu juga dengan orang yang membuat Almanak seperti kalender atau penanggalan agama lama, pengguguran kandungan dengan sengaja, kumpul kebo, korupsi, pindah tanpa membawa surat keterangan keanggotaan jemaat serta melakukan tari-tarian pemujaan roh dan bentuk kegiatan lain yang sejenis (Efesus 5:11).
+Apabila ada tindakan di tengah-tengah masyarakat umum yang bertentangan dengan Titah (Hukum Tuhan) dan iman kepercayaan gereja, ataupun kuasa yang mencoba menyusup ke dalam gereja, seperti kemajuan yang ada pada saat ini dalam bentuk kekafiran modern, membawa sesajen, mengadakan hubungan percakapan dengan roh-roh orang mati, upacara pesta adat dengan pemahaman sebagai sarana untuk memperoleh berkah yang tidak seturut dengan nilai-nilai kepercayaan, memohon kekayaan dan kemuliaan diri yang tidak berlandaskan firman Allah, begitu juga dengan orang yang membuat Almanak seperti kalender atau penanggalan agama lama, pengguguran kandungan dengan sengaja, kumpul kebo, korupsi, pindah tanpa membawa surat keterangan keanggotaan jemaat serta melakukan tari-tarian pemujaan roh dan bentuk kegiatan lain yang sejenis.[^Efesus 5:11]
 
 Perlu dihimbau agar para orang tua yang menyekolahkan anak-anak mereka ke sekolah yang diasuh oleh pemeluk agama lain untuk tetap memperhatikan mereka agar iman kepercayaan mereka tidak menyimpang.
 
@@ -214,7 +214,7 @@ Sanksi bagi mereka yang tidak mau meninggalkan pelanggarannya maupun dosanya itu
 
 ## III. Bentuk Pelanggaran yang Menyimpang dari Firman Tuhan
 
-Berdasarkan pemahaman akan firman Allah dalam Alkitab dan Konfesi Gereja (HKBP), semakin jelas bagi kita mengenai berbagai bentuk pelanggaran yang harus dihindari (band. Kel. 20; Ul. 5; Mat. 5-7).
+Berdasarkan pemahaman akan firman Allah dalam Alkitab dan Konfesi Gereja (HKBP), semakin jelas bagi kita mengenai berbagai bentuk pelanggaran yang harus dihindari.[^band. Kel. 20 et al]
 
 ### 1. Berkenaan dengan Titah Pertama dan Kedua (Ketaatan Kepada Allah).
 
@@ -252,7 +252,7 @@ Bentuk ketidakhormatan terhadap orangtua:
 
 1. Bunuh diri, dan abortus provocatus (pengguguran kandungan)
 
-1. Pengrusakan lingkungan dengan cara membakar, menebangi pohon di hutan (Ulangan 20:19-20), mencemari air dan udara serta lingkungan dan perilaku sejenis lainnya.
+1. Pengrusakan lingkungan dengan cara membakar, menebangi pohon di hutan,[^Ulangan 20:19-20] mencemari air dan udara serta lingkungan dan perilaku sejenis lainnya.
 
 ### 6. Berkenaan dengan Titah Ketujuh (Perzinahan)
 
@@ -260,7 +260,7 @@ Bentuk ketidakhormatan terhadap orangtua:
 
 1. Yang berpakaian tidak pantas, berbicara kotor, tak senonoh dan ketagihan menonton film porno.
 
-1. Yang melaksanakan perkawinan dengan cara paksa, mengageni pelacuran dan hidup sebagai germo. Kawin di luar nikah, beristri atau bersuami lebih dari satu di waktu yang sama, yang menceraikan istri atau suaminya, yang meninggalkan suami atau istri, termasuk orang-orang yang turut membantu perbuatan tercela itu, Demikian juga homoseks (perzinahan laki-laki dengan laki-laki dan perzinahan perempuan dengan perempuan). Pedofilia, nafsu seksual yang merusak anakanak, dan nafsu seksual terhadap hewan, peliharaan. Hawa nafsu dan segala perbuatan yang menjijikkan (Imamat 18:22-23, Imamat 20:13; Ulangan 22:5, 23:17-18; Roma 1: 24-27, 1 Korintus 6:9-10).
+1. Yang melaksanakan perkawinan dengan cara paksa, mengageni pelacuran dan hidup sebagai germo. Kawin di luar nikah, beristri atau bersuami lebih dari satu di waktu yang sama, yang menceraikan istri atau suaminya, yang meninggalkan suami atau istri, termasuk orang-orang yang turut membantu perbuatan tercela itu, Demikian juga homoseks (perzinahan laki-laki dengan laki-laki dan perzinahan perempuan dengan perempuan). Pedofilia, nafsu seksual yang merusak anakanak, dan nafsu seksual terhadap hewan, peliharaan. Hawa nafsu dan segala perbuatan yang menjijikkan.[^Imamat 18:22-23 et al]
 
 ### 7. Berkenaan dengan Titah Kedelapan (Pencurian)
 
@@ -288,7 +288,7 @@ Majelis dalam mengambil keputusan harus dengan mufakat, untuk menegur kejahatan 
 
 ### 1. Perkawinan
 
-Setelah manusia diciptakan, Tuhan Allah berfirman: "Tidak baik kalau manusia itu seorang diri saja; Aku akan menjadikan penolong baginya yang sepadan dengan dia" (Kejadian 2:18). Selanjutnya Tuhan Yesus mengatakan di Matius 5:32: "Setiap orang yang menceraikan istrinya, kecuali karena zinah, ia menjadikan istrinya berzinah: dan siapa yang kawin dengan perempuan yang diceraikan, ia berbuat zinah". Karena itu yang telah dipersatukan oleh Allah, tidak boleh diceraikan oleh manusia. Sesuai dengan dasar kekudusan dan pertangung jawaban perkawinan bagi kita orang Kristen, maka gereja mengatur hal-hal sebagai berikut:
+Setelah manusia diciptakan, Tuhan Allah berfirman: "Tidak baik kalau manusia itu seorang diri saja; Aku akan menjadikan penolong baginya yang sepadan dengan dia".[^Kejadian 2:18] Selanjutnya Tuhan Yesus mengatakan di[^Matius 5:32] "Setiap orang yang menceraikan istrinya, kecuali karena zinah, ia menjadikan istrinya berzinah: dan siapa yang kawin dengan perempuan yang diceraikan, ia berbuat zinah". Antong na pinadomu ni Debata, ndang jadi sirangon ni jolma. Sesuai dengan dasar kekudusan dan pertangung jawaban perkawinan bagi kita orang Kristen, maka gereja mengatur hal-hal sebagai berikut:
 
 1. Untuk memulai sebuah perkawinan, usia seorang laki-laki harus mencapai 19 (sembilan belas) tahun dan perempuan sudah mencapai 16 (enam belas) tahun. Ketentuan ini sesuai dengan Undang-Undang tentang Perkawinan yang diaturkan oleh pemerintah Republik Indonesia. Bila tidak memenuhi ketentuan ini (seperti usia, waktu pemberkatan, persetujuan orangtua, dan hal lain), hanya Praeses yang bersangkutan yang dapat memberi dispensasi.
 
@@ -318,7 +318,7 @@ Mengenai Catatan Sipil, hal itu merupakan urusan yang bersangkutan terhadap peme
 
 	1. Ada surat persetujuan orangtua laki-laki dan orangtua perempuan atau dari wali laki-laki atau wali perempuan.
 
-	1. Jika pihak orangtua atau wali tidak memberi persetujuan, maka Pendeta perlu meneliti yang akan diberkati, apabila usia masing-masing kedua calon mempelai telah mencapai 21 (dua puluh satu) tahun, pemberkatan perkawinan dapat dilaksanakan (bandingkan dengan Undang-undang Perkawinan Republik Indonesia no. 1 tahun 1974)
+	1. Jika pihak orangtua atau wali tidak memberi persetujuan, maka Pendeta perlu meneliti yang akan diberkati, apabila usia masing-masing kedua calon mempelai telah mencapai 21 (dua puluh satu) tahun, pemberkatan perkawinan dapat dilaksanakan.[^UU Perkawinan]
 
 1. Seorang laki-laki yang telah menceraikan istrinya, tidak diperkenankan untuk kawin jika istrinya yang sebelumnya belum menikah. Pemberkatan perkawinan dapat diberikan kepadanya jika dia bebas dari kesalahan pada perceraian sebelumnya, atau jika pelaksanaan siasat gereja terhadapnya sudah selesai dilalui. Demikian juga berlaku kepada perempuan yang telah cerai dengan suaminya.
 
@@ -328,7 +328,7 @@ Mengenai Catatan Sipil, hal itu merupakan urusan yang bersangkutan terhadap peme
 
 1. Gereja menegur perkawinan kumpul kebo atau samenleven atau kawin kontrak.
 
-1. Gereja mewartakan seseorang yang dianggap tidak lagi sebagai anggota jemaat apabila ia kawin tanpa sepengetahuan gereja dan hanya kawin secara Catatan Sipil, atau kawin dengan orang yang berbeda agama (lih. 1 Korintus 7:12-13+39). Akan tetapi mereka dapat diterima kembali ke dalam jemaat setelah disetujui oleh rapat majelis dan setelah melalui masa penggembalaan.
+1. Gereja mewartakan seseorang yang dianggap tidak lagi sebagai anggota jemaat apabila ia kawin tanpa sepengetahuan gereja dan hanya kawin secara Catatan Sipil, atau kawin dengan orang yang berbeda agama.[^lihat 1 Korintus 7:12-13, 39] Akan tetapi mereka dapat diterima kembali ke dalam jemaat setelah disetujui oleh rapat majelis dan setelah melalui masa penggembalaan.
 
 1. Gereja mengucilkan orang yang kawin hanya secara adat.
 
@@ -406,23 +406,23 @@ Majelis jemaat harus benar-benar melakukan penggembalaan untuk menuntun jemaat a
 
 		1. Membawa makanan kesukaan orang yang meninggal tersebut semasa hidupnya.
 
-	1. Majelis jemaat harus memperingatkan apabila ada warga jemaat yang membuat "sanggul marata" [simbol hiasan di kepala] pada saat seseorang meninggal dunia.
+	1. Majelis jemaat harus memperingatkan apabila ada warga jemaat yang membuat "sanggul marata" [simbol hiasan di kepala] pada saat seseorang meninggal dunia. 
+	
+		Tidak diperbolehkan melakukan praktek penyembahan berhala, cukuplah simbol tersebut sebagai bagian dari kebudayaan, sekaligus hendak menyaksikan bahwa Allah adalah sumber dari berkat yang telah diterima oleh keturunan dari orang yang meninggal itu semasa hidupnya, demikian juga berkat yang diminta kepada Allah untuk hari yang akan datang. Hanya Allah sendirilah yang menjadi jaminan masa depan dari keturunannya. Hanya Allah sendiri yang sanggup memberkati pada saat waktu keluar dan waktu masuk, sebagaimana disaksikan oleh Musa.[^Ulangan 28:5-6] Hal-hal itulah yang harus jelas terlihat/terdengar pada saat upacara adat berlangsung.
 
-		Tidak diperbolehkan melakukan praktek penyembahan berhala, cukuplah simbol tersebut sebagai bagian dari kebudayaan, sekaligus hendak menyaksikan bahwa Allah adalah sumber dari berkat yang telah diterima oleh keturunan dari orang yang meninggal itu semasa hidupnya, demikian juga berkat yang diminta kepada Allah untuk hari yang akan datang. Hanya Allah sendirilah yang menjadi jaminan masa depan dari keturunannya. Hanya Allah sendiri yang sanggup memberkati pada saat waktu keluar dan waktu masuk, sebagaimana disaksikan oleh Musa (Ulangan 28:5-6). Hal-hal itulah yang harus jelas terlihat/terdengar pada saat upacara adat berlangsung.
+	1. Perlu diingatkan agar warga jemaat tidak terlampau mementing-kan pembangunan tugu [monumen] karena dampaknya tidak baik:
 
-1. Perlu diingatkan agar warga jemaat tidak terlampau mementing-kan pembangunan tugu [monumen] karena dampaknya tidak baik:
+		1. Kehidupan beriman
 
-	1. Kehidupan beriman
+		1. Kehidupan ekonomi
 
-	1. Kehidupan ekonomi
-
-	1. Kehidupan bermasyarakat, karena kemungkinan mengarah kepada kesombongan.
+		1. Kehidupan bermasyarakat, karena kemungkinan mengarah kepada kesombongan.
 
 Majelis perlu mengarahkan agar lebih mengutamakan pembangu-nan 'tugu yang hidup' berupa pendirian gedung sekolah, gereja, koperasi serikat tolong menolong, beasiswa dan usaha lain yang sejenis.
 
 Akan tetapi kalaupun pembangunan tugu harus dilaksanakan karena dianggap perlu menunjuk-kan kesatuan keluarga (satu keturunan), hendak-lah terlebih dahulu tampak kesatuan di dalam Kristus, untuk menunjukkan bahwa kubur itu telah kosong, karena Kristus yang sudah bangkit dan membangkit-kan kita dari antara orang mati.
 
-Itulah nilai-nilai yang paling berharga bagi kesatuan seluruh marga, kaum, dan juga bangsa, sama seperti kesatuan kita dalam tubuh Kristus di dunia ini di dalam gereja-Nya. Kalaupun pakaian orang tua yang telah meninggal dibagikan, itu tidak dapat memenuhi apa yang dirindukan. Pengharapan pada hari Tuhan-lah yang akan menyempurnakan segala kesedihan yang timbul dalam hati kita, pada saat kita bersama-sama menyongsong hari kedatangan Tuhan (1 Tesalonika 4:13-18).
+Itulah nilai-nilai yang paling berharga bagi kesatuan seluruh marga, kaum, dan juga bangsa, sama seperti kesatuan kita dalam tubuh Kristus di dunia ini di dalam gereja-Nya. Kalaupun pakaian orang tua yang telah meninggal dibagikan, itu tidak dapat memenuhi apa yang dirindukan. Pengharapan pada hari Tuhan-lah yang akan menyempurnakan segala kesedihan yang timbul dalam hati kita, pada saat kita bersama-sama menyongsong hari kedatangan Tuhan.[^1 Tesalonika 4:13-18]
 
 ### 5. Penggalian Tulang Belulang
 
@@ -452,7 +452,7 @@ Setiap upacara yang menggunakan Gondang sebaiknya diawasi dan harus diakhiri di 
 
 ### 7. Mengenai Harta Warisan
 
-1. Gereja harus membimbing jemaatnya dan dengan sungguh-sungguh memberitahukan kepada warga jemaatnya bahwa anak laki-laki dan perempuan sama-sama memiliki hak atas harta warisan yang ditingalkan orangtuanya (Galatia 3:28).
+1. Gereja harus membimbing jemaatnya dan dengan sungguh-sungguh memberitahukan kepada warga jemaatnya bahwa anak laki-laki dan perempuan sama-sama memiliki hak atas harta warisan yang ditingalkan orangtuanya.[^Galatia 3:28]
 
 1. Apabila seorang ayah meninggal dunia dengan meninggalkan istri yang memiliki anak-anak yang masih kecil, hendaknya harta warisannya jangan dibagi-bagi. Tetapi seorang ibu dapat memberikan "panjaean" kepada anak-anaknya yang sudah dewasa sesuai dengan keperluannya.
 
@@ -462,7 +462,7 @@ Setiap upacara yang menggunakan Gondang sebaiknya diawasi dan harus diakhiri di 
 
 ### 1. Judi
 
-Judi adalah bentuk permainan, dapat menyita waktu dan materi, yang merusak kejiwaan, keluarga dan pekerjaan. Setiap orang yang melakukan perjudian dan yang menyediakan tempat untuk perjudian harus diperingatkan. Kalau seseorang itu tidak dapat lagi dinasihati, mereka harus dikenakan sanksi Tatanan Penggembalaan dan siasat gereja. Judi mengakibatkan iman semakin menipis, karena perilaku judi mengandalkan nasib dan takdir. Keburukan lain dari perjudian adalah sikap yang selalu mengutamakan keuntungan, sekalipun orang lain dirugikan, akibatnya rasa belas kasih dan tolong-menolong akan sirna. Keuntungan yang benar dicari melalui iman kepercayaan dalam pekerjaan (Lukas 19:1-7), sekaligus ada kepedulian terhadap sesama (1 Korintus 12:14-16).
+Judi adalah bentuk permainan, dapat menyita waktu dan materi, yang merusak kejiwaan, keluarga dan pekerjaan. Setiap orang yang melakukan perjudian dan yang menyediakan tempat untuk perjudian harus diperingatkan. Kalau seseorang itu tidak dapat lagi dinasihati, mereka harus dikenakan sanksi Tatanan Penggembalaan dan siasat gereja. Judi mengakibatkan iman semakin menipis, karena perilaku judi mengandalkan nasib dan takdir. Keburukan lain dari perjudian adalah sikap yang selalu mengutamakan keuntungan, sekalipun orang lain dirugikan, akibatnya rasa belas kasih dan tolong-menolong akan sirna. Keuntungan yang benar dicari melalui iman kepercayaan dalam pekerjaan,[^Lukas 19:1-7] sekaligus ada kepedulian terhadap sesama.[^1 Korintus 12:14-16]
 
 ### 2. Pembunuhan
 
@@ -474,7 +474,7 @@ Orang tersebut dapat diterima kembali menjadi anggota jemaat, apabila sudah bena
 
 Gereja harus menegor dan memperingatkan pemabuk, pemakai narkotika, morphin dan yang sejenis dengan itu.
 
-Orang tua dan keluarganya perlu diingatkan untuk mendampingi dan mengobatinya. Pemabuk akan menimbulkan persoalan besar (1 Timotius 3:3) demikian juga pengguna ganja. Orang-orang seperti itu akan semakin kencanduan, rakus, hidupnya tidak tenang, tidak memiliki kemauan bekerja, karena ia telah merusak dirinya sendiri. Dia tidak lagi mempunyai penglihatan yang normal, melainkan dia akan diperbudak oleh keinginannya sendiri, beban berat menimpa pikirannya dan lupa akan kebenaran (Amsal 31:4-6).
+Orang tua dan keluarganya perlu diingatkan untuk mendampingi dan mengobatinya. Pemabuk akan menimbulkan persoalan besar[^1 Timotius 3:3] demikian juga pengguna ganja. Orang-orang seperti itu akan semakin kencanduan, rakus, hidupnya tidak tenang, tidak memiliki kemauan bekerja, karena ia telah merusak dirinya sendiri. Dia tidak lagi mempunyai penglihatan yang normal, melainkan dia akan diperbudak oleh keinginannya sendiri, beban berat menimpa pikirannya dan lupa akan kebenaran.[^Amsal 31:4-6]
 
 Jemaat yang telah terbukti sebagai pengedar ganja, narkotik, morpin dan yang sejenis harus dikucilkan dari jemaat setelah vonis pengadilan negeri.
 
@@ -484,25 +484,59 @@ Jemaat yang telah terbukti sebagai pengedar ganja, narkotik, morpin dan yang sej
 
 	Gereja perlu mengingat pentingnya kesaksian Gereja di tengah kehidupan bernegara.
 
-1. Gereja tidak dapat menyamakan pengertian "kerukunan umat beragama" dengan pemahaman bahwa "semua agama adalah sama". Kita harus tetap berpegang teguh pada iman percaya kita kepada Yesus Kristus sebab hanya melalui Dia-lah ada keselamatan, kebenaran (Kisah Para Rasul 4:12; 1 Korintus 3: 1; Yohanes 14:6).
+1. Gereja tidak dapat menyamakan pengertian "kerukunan umat beragama" dengan pemahaman bahwa "semua agama adalah sama". Kita harus tetap berpegang teguh pada iman percaya kita kepada Yesus Kristus sebab hanya melalui Dia-lah ada keselamatan, kebenaran.[^Kisah Para Rasul 4:12 et al]
 
-1. Kita harus mengingat keberadaan kita dalam berbagai upacara nasional, sebagai orang Kristen yang tetap berpegang teguh pada ketaatan kepada Kristus, Raja dari segala raja dan Tuhan dari segala tuan. (Roma 13:1-7; 1 Timoteus 2:2; Kisah Para Rasul 5:29; Wahyu 19: 16). Karena itu, ketika kita berdoa, itulah doa seorang warga jemaat di dalam sebuah negara yang mengakui keberadaan agama Kristen, sebagai salah satu agama yang diakui oleh negara Pancasila. Dan kita harus benar-benar berdoa di dalam nama Tuhan Yesus Kristus, Sang Kepala Gereja.
+1. Kita harus mengingat keberadaan kita dalam berbagai upacara nasional, sebagai orang Kristen yang tetap berpegang teguh pada ketaatan kepada Kristus, Raja dari segala raja dan Tuhan dari segala tuan.[^Roma 13:1-7 et al] Karena itu, ketika kita berdoa, itulah doa seorang warga jemaat di dalam sebuah negara yang mengakui keberadaan agama Kristen, sebagai salah satu agama yang diakui oleh negara Pancasila. Dan kita harus benar-benar berdoa di dalam nama Tuhan Yesus Kristus, Sang Kepala Gereja.
 
-1. Gereja perlu mewartakan bahwa seseorang tidak lagi menjadi anggota jemaat apabila ia melakukan pernikahan kontrak atau hanya menikah secara catatan sipil dengan laki-laki/perempuan yang berasal dari agama yang lain. Sebab pernikahan mereka tidak sepengetahuan Gereja (1 Korintus 7:12-13+39). Namun gereja dapat menerima mereka kembali setelah mereka mengajukan permohonan kepada majelis jemaat dan bersedia mengikuti proses penggembalaan.
+1. Gereja perlu mewartakan bahwa seseorang tidak lagi menjadi anggota jemaat apabila ia melakukan pernikahan kontrak atau hanya menikah secara catatan sipil dengan laki-laki/perempuan yang berasal dari agama yang lain. Sebab pernikahan mereka tidak sepengetahuan Gereja.[^1 Korintus 7:12-13, 39] Namun gereja dapat menerima mereka kembali setelah mereka mengajukan permohonan kepada majelis jemaat dan bersedia mengikuti proses penggembalaan.
 
 1. Gereja HKBP tidak mengakui sebuah perkumpulan yang menyimpang dari HKBP, selama HKBP tidak mengakui mereka sebagai sebuah gereja. Seseorang dapat diterima menjadi anggota jemaat HKBP apabila ia memiliki iman yang tidak berlawanan dengan iman kepercayaan kita, dengan membawa surat keterangan.
 
 1. Oleh sebab ajaran para bidat hanya berlandaskan sebagian dari Alkitab, maka Gereja harus memperingati dan menasihati anggota jemaat yang mengikuti ajaran Bidat. Sebab itu, HKBP tidak mengakui keberadaan bidat dalam kehidupan beriman.
 
-## VII. KESIMPULAN
+## VII. Kesimpulan
 
 Agar supaya roh penggembalaan tetap hidup di tengah-tengah Gereja, maka seperti kesungguhannya dalam mengingatkan orang-orang yang taat dalam ibadah kepada Allah, kiranya demikian juga kesungguhan menegur orang yang tidak mau menerima jalan kehidupan, supaya tidak ada yang hilang karena teguran tidak ada, dan supaya dosanya tidak ditimpakan kepada Gereja.
 
-Untuk itulah di dalam jemaat, diangkat para pelayan tahbisan untuk melaksanakan tugas dan tanggung jawab sebagai gembala bukan hanya sebagai hakim semata. Firman yang tertulis kita jadikan pedoman: "Hai anak manusia, AKU telah menetapkan engkau menjadi penjaga kaum Israel. Bilamana engkau mendengarkan sesuatu Firman daripadaKU, peringatkanlah mereka atas NamaKU. Kalau AKU berfirman kepada orang jahat: Engkau pasti dihukum mati, dan engkau tidak memperingatkan dia, atau tidak berkata apa-apa untuk memperingatkan orang jahat itu dari hidupnya yang jahat, supaya ia tetap hidup; orang jahat itu akan mati dalam kesalahannya, tetap AKU akan menuntut pertanggungjawaban atas nyawanya dari padamu. Tetap jikalau engkau memperingatkan orang jahat itu, dan ia tidak berbalik dari kejahatannya dan dari hidupnya yang jahat, ia akan mati dalam kesalahannya, tetapi engkau telah menyelamatkan nyawamu" (Yehezkiel 3:17-19).
+Untuk itulah di dalam jemaat, diangkat para pelayan tahbisan untuk melaksanakan tugas dan tanggung jawab sebagai gembala bukan hanya sebagai hakim semata. Firman yang tertulis kita jadikan pedoman: "Hai anak manusia, AKU telah menetapkan engkau menjadi penjaga kaum Israel. Bilamana engkau mendengarkan sesuatu Firman daripadaKU, peringatkanlah mereka atas NamaKU. Kalau AKU berfirman kepada orang jahat: Engkau pasti dihukum mati, dan engkau tidak memperingatkan dia, atau tidak berkata apa-apa untuk memperingatkan orang jahat itu dari hidupnya yang jahat, supaya ia tetap hidup; orang jahat itu akan mati dalam kesalahannya, tetap AKU akan menuntut pertanggungjawaban atas nyawanya dari padamu. Tetap jikalau engkau memperingatkan orang jahat itu, dan ia tidak berbalik dari kejahatannya dan dari hidupnya yang jahat, ia akan mati dalam kesalahannya, tetapi engkau telah menyelamatkan nyawamu".[^Yehezkiel 3:17-19]
 
-Sembari kita merenungkan perkataan Tuhan Yesus, sebab Ia telah menyerahkan kunci kerajaan sorga kepada gereja-Nya, supaya gereja menghukum dan mengucilkan orang-orang yang tidak mau bertobat. Sebab demikianlah firman Tuhan: "Kepadamu akan kuberikan kunci kerajaan sorga. Apa yang kau ikat di dunia ini akan terikat di surga dan apa yang kau lepaskan di dunia ini akan terlepas di surga" (Matius 16:19). Tuhan Yesus juga berfirman: "Terimalah Roh Kudus! Jikalau kamu mengampuni dosa orang, dosanya diampuni, dan jikalau kamu menyatakan dosa orang tetap ada, dosanya tetap ada". (Yohanes 20:22b-23). Amen.
+Sembari kita merenungkan perkataan Tuhan Yesus, sebab Ia telah menyerahkan kunci kerajaan sorga kepada gereja-Nya, supaya gereja menghukum dan mengucilkan orang-orang yang tidak mau bertobat. Sebab demikianlah firman Tuhan: "Kepadamu akan kuberikan kunci kerajaan sorga. Apa yang kau ikat di dunia ini akan terikat di surga dan apa yang kau lepaskan di dunia ini akan terlepas di surga".[^Matius 16:19] Tuhan Yesus juga berfirman: "Terimalah Roh Kudus! Jikalau kamu mengampuni dosa orang, dosanya diampuni, dan jikalau kamu menyatakan dosa orang tetap ada, dosanya tetap ada".[^Yohanes 20:22b-23] Amen.
 
-!!! note "Referensi"
-
-   	- https://www.scribd.com/document/721121737/RPP-HKBP-Revisi
-	- https://www.hkbpperawang.org/rpp-hkbp/
+[^Yohanes 10:11]: Yohanes 10:11
+[^Yohanes 10:27-28]: Yohanes 10:27-28
+[^Imamat 19:2 et al]: Imamat 19:2; Yesaya 6:3; Matius 5:48; 1 Petrus 1:15-16
+[^1 Petrus 2:1-2]: 1 Petrus 2:1-2
+[^2 Korintus 5:17]: 2 Korintus 5:17
+[^1 Tesalonika 5:23]: 1 Tesalonika 5:23
+[^Matius 18:15-18; 1 Korintus 14:26]: Matius 18:15-18; 1 Korintus 14:26
+[^Yehezkiel 33:11; 1 Korintus 5:5]: Yehezkiel 33:11; 1 Korintus 5:5
+[^Yehezkiel 3:20; Matius 16:19]: Yehezkiel 3:20; Matius 16:19
+[^Yehezkiel 33:11]: Yehezkiel 33:11
+[^1 Korintus 5:11 et al]: 1 Korintus 5:11; 2 Tesalonika 3:6; Titus 3:10
+[^Yohanes 21:17]: Yohanes 21:17
+[^Matius 18:15-17]: Matius 18:15-17
+[^Matius 16:19 et al]: Matius 16:19; Matius 18:18; Yohanes 20:23
+[^2 Timotius 3:5; Kolose 3:16-17]: 2 Timotius 3:5; Kolose 3:16-17
+[^2 Tesalonika 3:12]: 2 Tesalonika 3:12
+[^1 Korintus 10:31; Roma 14:18]: 1 Korintus 10:31; Roma 14:18
+[^Efesus 5:11]: Efesus 5:11
+[^band. Kel. 20 et al]: bandingkan Keluaran 20; Ulangan 5; Matius 5-7
+[^Ulangan 20:19-20]: Ulangan 20:19-20
+[^Imamat 18:22-23 et al]: Imamat 18:22-23, Imamat 20:13; Ulangan 22:5, 23:17-18; Roma 1:24-27, 1 Korintus 6:9-10
+[^Kejadian 2:18]: Kejadian 2:18
+[^Matius 5:32]: Matius 5:32
+[^UU Perkawinan]: bandingkan dengan Undang-undang Perkawinan Republik Indonesia no. 1 tahun 1974
+[^lihat 1 Korintus 7:12-13, 39]: lihat 1 Korintus 7:12-13, 39
+[^Ulangan 28:5-6]: Ulangan 28:5-6
+[^1 Tesalonika 4:13-18]: 1 Tesalonika 4:13-18
+[^Galatia 3:28]: Galatia 3:28
+[^Lukas 19:1-7]: Lukas 19:1-7
+[^1 Korintus 12:14-16]: 1 Korintus 12:14-16
+[^1 Timotius 3:3]: 1 Timotius 3:3
+[^Amsal 31:4-6]: Amsal 31:4-6
+[^Kisah Para Rasul 4:12 et al]: Kisah Para Rasul 4:12; 1 Korintus 3:11; Yohanes 14:6
+[^Roma 13:1-7 et al]: Roma 13:1-7; 1 Timotius 2:2; Kisah Para Rasul 5:29; Wahyu 19:16
+[^1 Korintus 7:12-13, 39]: 1 Korintus 7:12-13, 39
+[^Yehezkiel 3:17-19]: Yehezkiel 3:17-19
+[^Matius 16:19]: Matius 16:19
+[^Yohanes 20:22b-23]: Yohanes 20:22b-23
