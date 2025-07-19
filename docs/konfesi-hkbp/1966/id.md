@@ -309,61 +309,61 @@ Malaikat-malaikat adalah ciptaan Allah, yang taat kepada Dia, dan roh pelayan, y
 
    	- https://www.scribd.com/document/378414835/Pengakuan-Iman-HKBP-1996
 
-[^2 Timotius 3:16a]: 2 Timotius 3:16a
-[^2 Korintus 1:21-22]: 2 Korintus 1:21-22
-[^2 Timotius 3:16-17]: 2 Timotius 3:16-17
-[^1 Tesalonika 2:13]: 1 Tesalonika 2:13
-[^Kolose 1:23]: Kolose 1:23
-[^2 Timotius 3:14]: 2 Timotius 3:14
-[^1 Timotius 4:6]: 1 Timotius 4:6
-[^2 Timotius 4:2]: 2 Timotius 4:2
-[^Matius 28:19]: Matius 28:19
-[^1 Petrus 3:15]: 1 Petrus 3:15
-[^Ulangan 6:7]: Ulangan 6:7
-[^Ulangan 6:4 et al]: Ulangan 6:4, Keluaran 3:14; Kejadian 17:1; Mazmur 105:8; 1 Korintus 1:9; 2 Tesalonika 3:3; Lukas 1:37; Roma 11:33; Ulangan 10:17; Roma 2:11; 1 Korintus 1:30; Mazmur 103:8, 24:1; Yesaya 6:3; Yohanes 3:16; 1 Timotius 6:15-16
+[^2 Timotius 3:16a]: [2 Timotius 3:16a](https://alkitab.mobi/tb/passage/2Ti+3%3A16){target="_blank"}
+[^2 Korintus 1:21-22]: [2 Korintus 1:21-22](https://alkitab.mobi/tb/passage/2Ko+1%3A21-22){target="_blank"}
+[^2 Timotius 3:16-17]: [2 Timotius 3:16-17](https://alkitab.mobi/tb/passage/2Ti+3%3A16-17){target="_blank"}
+[^1 Tesalonika 2:13]: [1 Tesalonika 2:13](https://alkitab.mobi/tb/passage/1Te+2%3A13){target="_blank"}
+[^Kolose 1:23]: [Kolose 1:23](https://alkitab.mobi/tb/passage/Kol+1%3A23){target="_blank"}
+[^2 Timotius 3:14]: [2 Timotius 3:14](https://alkitab.mobi/tb/passage/2Ti+3%3A14){target="_blank"}
+[^1 Timotius 4:6]: [1 Timotius 4:6](https://alkitab.mobi/tb/passage/1Ti+4%3A6){target="_blank"}
+[^2 Timotius 4:2]: [2 Timotius 4:2](https://alkitab.mobi/tb/passage/2Ti+4%3A2){target="_blank"}
+[^Matius 28:19]: [Matius 28:19](https://alkitab.mobi/tb/passage/Mat+28%3A19){target="_blank"}
+[^1 Petrus 3:15]: [1 Petrus 3:15](https://alkitab.mobi/tb/passage/1Pt+3%3A15){target="_blank"}
+[^Ulangan 6:7]: [Ulangan 6:7](https://alkitab.mobi/tb/passage/Ula+6%3A7){target="_blank"}
+[^Ulangan 6:4 et al]: [Ulangan 6:4](https://alkitab.mobi/tb/passage/Ula+6%3A4){target="_blank"}, [Keluaran 3:14](https://alkitab.mobi/tb/passage/Kel+3%3A14){target="_blank"}; [Kejadian 17:1](https://alkitab.mobi/tb/passage/Kej+17%3A1){target="_blank"}; [Mazmur 105:8](https://alkitab.mobi/tb/passage/Mzm+105%3A8){target="_blank"}; [1 Korintus 1:9](https://alkitab.mobi/tb/passage/1Ko+1%3A9){target="_blank"}; [2 Tesalonika 3:3](https://alkitab.mobi/tb/passage/2Te+3%3A3){target="_blank"}; [Lukas 1:37](https://alkitab.mobi/tb/passage/Luk+1%3A37){target="_blank"}; [Roma 11:33](https://alkitab.mobi/tb/passage/Rom+11%3A33){target="_blank"}; [Ulangan 10:17](https://alkitab.mobi/tb/passage/Ula+10%3A17){target="_blank"}; [Roma 2:11](https://alkitab.mobi/tb/passage/Rom+2%3A11){target="_blank"}; [1 Korintus 1:30](https://alkitab.mobi/tb/passage/1Ko+1%3A30){target="_blank"}; [Mazmur 103:8](https://alkitab.mobi/tb/passage/Mzm+103%3A8){target="_blank"}, [24:1](https://alkitab.mobi/tb/passage/Mzm+24%3A1){target="_blank"}; [Yesaya 6:3](https://alkitab.mobi/tb/passage/Yes+6%3A3){target="_blank"}; [Yohanes 3:16](https://alkitab.mobi/tb/passage/Yoh+3%3A16){target="_blank"}; [1 Timotius 6:15-16](https://alkitab.mobi/tb/passage/1Ti+6%3A15-16){target="_blank"}
 [^R.P.P HKBP]: bandingkan R.P.P HKBP, II 2B hal 15 dan III.1.a.c.d. hal 17-180
-[^Yohanes 5:19 et al]: Yohanes 5:19; 14:11; 1:1; 15:26; 2 Korintus 13:13; Matius 28:19
-[^Matius 28:18 et al]: Matius 28:18; Ibrani 9:14; Filipi 2:9-14; Efesus 1:20-22, 1:7; Yohanes 3:16
-[^Yeremia 11:2 et al]: Yeremia 11:2; 9:6; Yoel 3:1; Amsal 8:12-31; 1 Korintus 14:3-6, 28; Wahyu 22
-[^Roma 8:14-17 et al]: Roma 8:14-17; 1 Korintus 3:16; Titus 3:5; Kisah Para Rasul 2; Pengakuan Iman bagian ketiga dan artinya
-[^Galatia 5:22-23; Efesus 4:3-6]: Galatia 5:22-23; Efesus 4:3-6
-[^1 Korintus 12:3 et al]: 1 Korintus 12:3; Yohanes 16:15; 2 Petrus 1:20-21
-[^Yohanes 1:14]: bandingkan Yohanes 1:14
-[^Matius 28:19-20]: Matius 28:19-20
-[^Roma 7:17]: Roma 7:17
-[^1 Korintus 3:9]: 1 Korintus 3:9
-[^Kejadian 1:27]: Kejadian 1:27
-[^Galatia 3:28]: Galatia 3:28
-[^Galatia 6:2]: Galatia 6:2
-[^Efesus 5:21; Amsal 30:10]: Efesus 5:21; Amsal 30:10
-[^Kejadian 2:5-15]: Kejadian 2:5-15
-[^Kolose 1:15-20; Roma 8:19-33]: Kolose 1:15-20; Roma 8:19-33
-[^Mazmur 8:4-10]: Mazmur 8:4-10
-[^Ulangan 5:20, 19-20]: Ulangan 5:20, 19-20
-[^Mazmur 104:1-23; Wahyu 22:1-2]: bandingkan Mazmur 104:1-23; Wahyu 22:1-2
-[^1 Yohanes 3:16 et al]: 1 Yohanes 3:16; 2 Korintus 8:9; Kisah Para Rasul 4:12; Galatia 5:22
-[^Roma 8:38-39]: Roma 8:38-39
-[^1 Korintus 1:2 et al]: 1 Korintus 1:2; 1 Petrus 2:9; 1 Korintus 3; Yohanes 17; Matius 13:24-30
-[^Wahyu 1:6 et al]: Wahyu 1:6; Efesus 3:21; 1 Korintus 3:16; 1 Petrus 2:9; Efesus 2:22
-[^Wahyu 7:9 et al]: Wahyu 7:9, Galatia 3:28; 1 Korintus 11:7-12
-[^Efesus 4:4-6 et al]: Efesus 4:4-6; 1 Korintus 12:20; Yohanes 17:20-21
-[^Matius 28:19; Markus 16:15-16]: Matius 28:19, Markus 16:15-16
-[^Matius 28:19 et al]: Matius 28:19; Markus 16:15-16; Markus 14; Lukas 22; 1 Korintus 11
-[^Markus 10:14 et al]: Markus 10:14; Lukas 18:16; Kisah Para Rasul 2:41; 10:48; 16:33; Roma 6:4; 1 Korintus 10:1-9; Titus 3:5; Ibrani 11:29; 1 Petrus 3:21
-[^Matius 26:20-30 et al]: Matius 26:20-30; Markus 14:17-26; Lukas 22:14-20; 1 Korintus 11:17-34
-[^1 Korintus 2:28 et al]: 1 Korintus 2:28; 1 Timotius 6:5; Yohanes 1:49; 1 Petrus 2:9
-[^Efesus 4:11 et al]: Efesus 4:11; Kisah Para Rasul 6:1-7; 14:23; 15:2; 20:28; Filipi 1:1; 1 Timotius 3:1; Titus 1:7; 1 Timotius 3:3; 4:11; Matius 23:11; 1 Korintus 12:5-7
-[^2 Korintus 13:13; Kisah Para Rasul 8:16]: 2 Korintus 13:13; Kisah Para Rasul 8:16
-[^1 Petrus 5:4; 2:25]: 1 Petrus 5:4; 2:25
-[^1 Korintus 3:11 et al]: 1 Korintus 3:11; 14:33; 1 Petrus 2:4-6
-[^Yohanes 20:19-26 et al]: Yohanes 20:19-26; 1 Korintus 16:2; Kisah Para Rasul 20:7; Wahyu 1:10
-[^Yohanes 5:17]: Yohanes 5:17
-[^Efesus 2:8; Roma 5:1]: Efesus 2:8; Roma 5:1
-[^2 Korintus 9:2-11]: 2 Korintus 9:2-11
-[^Roma 13:1 et al]: Roma 13:1; 1 Korintus 3:11, Kisah Para Rasul 5:29; 1 Petrus 2:13-17; Wahyu 13
-[^1 Timotius 2:1-2; Roma 13:1-7]: 1 Timotius 2:1-2; Roma 13:1-7
-[^1 Timotius 4:4-5 et al]: 1 Timotius 4:4-5; Matius 15; Roma 14:17; Kisah Para Rasul 15; Kolose 2:16-23
-[^Roma 14:7-9]: Roma 14:7-9
-[^Wahyu 14:13]: Wahyu 14:13
-[^Yohanes 5:28 et al]: Yohanes 5:28; 1 Tesalonika 4:16; Matius 24:3,42; Lukas 21:28; Matius 25; Wahyu 20:11-15; 1 Korintus 15:52; 2 Korintus 5:10; Yesaya 60:10-16
-[^Ibrani 1:14 et al]: Ibrani 1:14; Kejadian 22:11-12; Lukas 1:11,26; 2:9; Matius 28:2; Yudas 9; Wahyu 12:7-9; 14:6; 20:1-3; 22:18; Maleakhi 3:1
+[^Yohanes 5:19 et al]: [Yohanes 5:19](https://alkitab.mobi/tb/passage/Yoh+5%3A19){target="_blank"}; [14:11](https://alkitab.mobi/tb/passage/Yoh+14%3A11){target="_blank"}; [1:1](https://alkitab.mobi/tb/passage/Yoh+1%3A1){target="_blank"}; [15:26](https://alkitab.mobi/tb/passage/Yoh+15%3A26){target="_blank"}; [2 Korintus 13:13](https://alkitab.mobi/tb/passage/2Ko+13%3A13){target="_blank"}; [Matius 28:19](https://alkitab.mobi/tb/passage/Mat+28%3A19){target="_blank"}
+[^Matius 28:18 et al]: [Matius 28:18](https://alkitab.mobi/tb/passage/Mat+28%3A18){target="_blank"}; [Ibrani 9:14](https://alkitab.mobi/tb/passage/Ibr+9%3A14){target="_blank"}; [Filipi 2:9-14](https://alkitab.mobi/tb/passage/Flp+2%3A9-14){target="_blank"}; [Efesus 1:20-22](https://alkitab.mobi/tb/passage/Efe+1%3A20-22){target="_blank"}, [1:7](https://alkitab.mobi/tb/passage/Efe+1%3A7){target="_blank"}; [Yohanes 3:16](https://alkitab.mobi/tb/passage/Yoh+3%3A16){target="_blank"}
+[^Yeremia 11:2 et al]: [Yeremia 11:2](https://alkitab.mobi/tb/passage/Yer+11%3A2){target="_blank"}; [9:6](https://alkitab.mobi/tb/passage/Yer+9%3A6){target="_blank"}; [Yoel 3:1](https://alkitab.mobi/tb/passage/Yoe+3%3A1){target="_blank"}; [Amsal 8:12-31](https://alkitab.mobi/tb/passage/Ams+8%3A12-31){target="_blank"}; [1 Korintus 14:3-6, 28](https://alkitab.mobi/tb/passage/1Ko+14%3A3-6,28){target="_blank"}; [Wahyu 22](https://alkitab.mobi/tb/passage/Why+22){target="_blank"}
+[^Roma 8:14-17 et al]: [Roma 8:14-17](https://alkitab.mobi/tb/passage/Rom+8%3A14-17){target="_blank"}; [1 Korintus 3:16](https://alkitab.mobi/tb/passage/1Ko+3%3A16){target="_blank"}; [Titus 3:5](https://alkitab.mobi/tb/passage/Tit+3%3A5){target="_blank"}; [Kisah Para Rasul 2](https://alkitab.mobi/tb/passage/Kis+2){target="_blank"}; Pengakuan Iman bagian ketiga dan artinya
+[^Galatia 5:22-23; Efesus 4:3-6]: [Galatia 5:22-23](https://alkitab.mobi/tb/passage/Gal+5%3A22-23){target="_blank"}; [Efesus 4:3-6](https://alkitab.mobi/tb/passage/Efe+4%3A3-6){target="_blank"}
+[^1 Korintus 12:3 et al]: [1 Korintus 12:3](https://alkitab.mobi/tb/passage/1Ko+12%3A3){target="_blank"}; [Yohanes 16:15](https://alkitab.mobi/tb/passage/Yoh+16%3A15){target="_blank"}; [2 Petrus 1:20-21](https://alkitab.mobi/tb/passage/2Pt+1%3A20-21){target="_blank"}
+[^Yohanes 1:14]: bandingkan [Yohanes 1:14](https://alkitab.mobi/tb/passage/Yoh+1%3A14){target="_blank"}
+[^Matius 28:19-20]: [Matius 28:19-20](https://alkitab.mobi/tb/passage/Mat+28%3A19-20){target="_blank"}
+[^Roma 7:17]: [Roma 7:17](https://alkitab.mobi/tb/passage/Rom+7%3A17){target="_blank"}
+[^1 Korintus 3:9]: [1 Korintus 3:9](https://alkitab.mobi/tb/passage/1Ko+3%3A9){target="_blank"}
+[^Kejadian 1:27]: [Kejadian 1:27](https://alkitab.mobi/tb/passage/Kej+1%3A27){target="_blank"}
+[^Galatia 3:28]: [Galatia 3:28](https://alkitab.mobi/tb/passage/Gal+3%3A28){target="_blank"}
+[^Galatia 6:2]: [Galatia 6:2](https://alkitab.mobi/tb/passage/Gal+6%3A2){target="_blank"}
+[^Efesus 5:21; Amsal 30:10]: [Efesus 5:21](https://alkitab.mobi/tb/passage/Efe+5%3A21){target="_blank"}; [Amsal 30:10](https://alkitab.mobi/tb/passage/Ams+30%3A10){target="_blank"}
+[^Kejadian 2:5-15]: [Kejadian 2:5-15](https://alkitab.mobi/tb/passage/Kej+2%3A5-15){target="_blank"}
+[^Kolose 1:15-20; Roma 8:19-33]: [Kolose 1:15-20](https://alkitab.mobi/tb/passage/Kol+1%3A15-20){target="_blank"}; [Roma 8:19-33](https://alkitab.mobi/tb/passage/Rom+8%3A19-33){target="_blank"}
+[^Mazmur 8:4-10]: [Mazmur 8:4-10](https://alkitab.mobi/tb/passage/Mzm+8%3A4-10){target="_blank"}
+[^Ulangan 5:20, 19-20]: [Ulangan 5:20, 19-20](https://alkitab.mobi/tb/passage/Ula+5%3A19-20){target="_blank"}
+[^Mazmur 104:1-23; Wahyu 22:1-2]: bandingkan [Mazmur 104:1-23](https://alkitab.mobi/tb/passage/Mzm+104%3A1-23){target="_blank"}; [Wahyu 22:1-2](https://alkitab.mobi/tb/passage/Why+22%3A1-2){target="_blank"}
+[^1 Yohanes 3:16 et al]: [1 Yohanes 3:16](https://alkitab.mobi/tb/passage/1Yo+3%3A16){target="_blank"}; [2 Korintus 8:9](https://alkitab.mobi/tb/passage/2Ko+8%3A9){target="_blank"}; [Kisah Para Rasul 4:12](https://alkitab.mobi/tb/passage/Kis+4%3A12){target="_blank"}; [Galatia 5:22](https://alkitab.mobi/tb/passage/Gal+5%3A22){target="_blank"}
+[^Roma 8:38-39]: [Roma 8:38-39](https://alkitab.mobi/tb/passage/Rom+8%3A38-39){target="_blank"}
+[^1 Korintus 1:2 et al]: [1 Korintus 1:2](https://alkitab.mobi/tb/passage/1Ko+1%3A2){target="_blank"}; [1 Petrus 2:9](https://alkitab.mobi/tb/passage/1Pt+2%3A9){target="_blank"}; [1 Korintus 3](https://alkitab.mobi/tb/passage/1Ko+3){target="_blank"}; [Yohanes 17](https://alkitab.mobi/tb/passage/Yoh+17){target="_blank"}; [Matius 13:24-30](https://alkitab.mobi/tb/passage/Mat+13%3A24-30){target="_blank"}
+[^Wahyu 1:6 et al]: [Wahyu 1:6](https://alkitab.mobi/tb/passage/Why+1%3A6){target="_blank"}; [Efesus 3:21](https://alkitab.mobi/tb/passage/Efe+3%3A21){target="_blank"}; [1 Korintus 3:16](https://alkitab.mobi/tb/passage/1Ko+3%3A16){target="_blank"}; [1 Petrus 2:9](https://alkitab.mobi/tb/passage/1Pt+2%3A9){target="_blank"}; [Efesus 2:22](https://alkitab.mobi/tb/passage/Efe+2%3A22){target="_blank"}
+[^Wahyu 7:9 et al]: [Wahyu 7:9](https://alkitab.mobi/tb/passage/Why+7%3A9){target="_blank"}, [Galatia 3:28](https://alkitab.mobi/tb/passage/Gal+3%3A28){target="_blank"}; [1 Korintus 11:7-12](https://alkitab.mobi/tb/passage/1Ko+11%3A7-12){target="_blank"}
+[^Efesus 4:4-6 et al]: [Efesus 4:4-6](https://alkitab.mobi/tb/passage/Efe+4%3A4-6){target="_blank"}; [1 Korintus 12:20](https://alkitab.mobi/tb/passage/1Ko+12%3A20){target="_blank"}; [Yohanes 17:20-21](https://alkitab.mobi/tb/passage/Yoh+17%3A20-21){target="_blank"}
+[^Matius 28:19; Markus 16:15-16]: [Matius 28:19](https://alkitab.mobi/tb/passage/Mat+28%3A19){target="_blank"}, [Markus 16:15-16](https://alkitab.mobi/tb/passage/Mrk+16%3A15-16){target="_blank"}
+[^Matius 28:19 et al]: [Matius 28:19](https://alkitab.mobi/tb/passage/Mat+28%3A19){target="_blank"}; [Markus 16:15-16](https://alkitab.mobi/tb/passage/Mrk+16%3A15-16){target="_blank"}; [Markus 14](https://alkitab.mobi/tb/passage/Mrk+14){target="_blank"}; [Lukas 22](https://alkitab.mobi/tb/passage/Luk+22){target="_blank"}; [1 Korintus 11](https://alkitab.mobi/tb/passage/1Ko+11){target="_blank"}
+[^Markus 10:14 et al]: [Markus 10:14](https://alkitab.mobi/tb/passage/Mrk+10%3A14){target="_blank"}; [Lukas 18:16](https://alkitab.mobi/tb/passage/Luk+18%3A16){target="_blank"}; [Kisah Para Rasul 2:41](https://alkitab.mobi/tb/passage/Kis+2%3A41){target="_blank"}; [10:48](https://alkitab.mobi/tb/passage/Kis+10%3A48){target="_blank"}; [16:33](https://alkitab.mobi/tb/passage/Kis+16%3A33){target="_blank"}; [Roma 6:4](https://alkitab.mobi/tb/passage/Rom+6%3A4){target="_blank"}; [1 Korintus 10:1-9](https://alkitab.mobi/tb/passage/1Ko+10%3A1-9){target="_blank"}; [Titus 3:5](https://alkitab.mobi/tb/passage/Tit+3%3A5){target="_blank"}; [Ibrani 11:29](https://alkitab.mobi/tb/passage/Ibr+11%3A29){target="_blank"}; [1 Petrus 3:21](https://alkitab.mobi/tb/passage/1Pt+3%3A21){target="_blank"}
+[^Matius 26:20-30 et al]: [Matius 26:20-30](https://alkitab.mobi/tb/passage/Mat+26%3A20-30){target="_blank"}; [Markus 14:17-26](https://alkitab.mobi/tb/passage/Mrk+14%3A17-26){target="_blank"}; [Lukas 22:14-20](https://alkitab.mobi/tb/passage/Luk+22%3A14-20){target="_blank"}; [1 Korintus 11:17-34](https://alkitab.mobi/tb/passage/1Ko+11%3A17-34){target="_blank"}
+[^1 Korintus 2:28 et al]: [1 Korintus 12:28](https://alkitab.mobi/tb/passage/1Ko+12%3A28){target="_blank"}; [1 Timotius 6:5](https://alkitab.mobi/tb/passage/1Ti+6%3A5){target="_blank"}; [Yohanes 1:49](https://alkitab.mobi/tb/passage/Yoh+1%3A49){target="_blank"}; [1 Petrus 2:9](https://alkitab.mobi/tb/passage/1Pt+2%3A9){target="_blank"}
+[^Efesus 4:11 et al]: [Efesus 4:11](https://alkitab.mobi/tb/passage/Efe+4%3A11){target="_blank"}; [Kisah Para Rasul 6:1-7](https://alkitab.mobi/tb/passage/Kis+6%3A1-7){target="_blank"}; [14:23](https://alkitab.mobi/tb/passage/Kis+14%3A23){target="_blank"}; [15:2](https://alkitab.mobi/tb/passage/Kis+15%3A2){target="_blank"}; [20:28](https://alkitab.mobi/tb/passage/Kis+20%3A28){target="_blank"}; [Filipi 1:1](https://alkitab.mobi/tb/passage/Flp+1%3A1){target="_blank"}; [1 Timotius 3:1](https://alkitab.mobi/tb/passage/1Ti+3%3A1){target="_blank"}; [Titus 1:7](https://alkitab.mobi/tb/passage/Tit+1%3A7){target="_blank"}; [1 Timotius 3:3](https://alkitab.mobi/tb/passage/1Ti+3%3A3){target="_blank"}; [4:11](https://alkitab.mobi/tb/passage/1Ti+4%3A11){target="_blank"}; [Matius 23:11](https://alkitab.mobi/tb/passage/Mat+23%3A11){target="_blank"}; [1 Korintus 12:5-7](https://alkitab.mobi/tb/passage/1Ko+12%3A5-7){target="_blank"}
+[^2 Korintus 13:13; Kisah Para Rasul 8:16]: [2 Korintus 13:13](https://alkitab.mobi/tb/passage/2Ko+13%3A13){target="_blank"}; [Kisah Para Rasul 8:16](https://alkitab.mobi/tb/passage/Kis+8%3A16){target="_blank"}
+[^1 Petrus 5:4; 2:25]: [1 Petrus 5:4](https://alkitab.mobi/tb/passage/1Pt+5%3A4){target="_blank"}; [2:25](https://alkitab.mobi/tb/passage/1Pt+2%3A25){target="_blank"}
+[^1 Korintus 3:11 et al]: [1 Korintus 3:11](https://alkitab.mobi/tb/passage/1Ko+3%3A11){target="_blank"}; [14:33](https://alkitab.mobi/tb/passage/1Ko+14%3A33){target="_blank"}; [1 Petrus 2:4-6](https://alkitab.mobi/tb/passage/1Pt+2%3A4-6){target="_blank"}
+[^Yohanes 20:19-26 et al]: [Yohanes 20:19-26](https://alkitab.mobi/tb/passage/Yoh+20%3A19-26){target="_blank"}; [1 Korintus 16:2](https://alkitab.mobi/tb/passage/1Ko+16%3A2){target="_blank"}; [Kisah Para Rasul 20:7](https://alkitab.mobi/tb/passage/Kis+20%3A7){target="_blank"}; [Wahyu 1:10](https://alkitab.mobi/tb/passage/Why+1%3A10){target="_blank"}
+[^Yohanes 5:17]: [Yohanes 5:17](https://alkitab.mobi/tb/passage/Yoh+5%3A17){target="_blank"}
+[^Efesus 2:8; Roma 5:1]: [Efesus 2:8](https://alkitab.mobi/tb/passage/Efe+2%3A8){target="_blank"}; [Roma 5:1](https://alkitab.mobi/tb/passage/Rom+5%3A1){target="_blank"}
+[^2 Korintus 9:2-11]: [2 Korintus 9:2-11](https://alkitab.mobi/tb/passage/2Ko+9%3A2-11){target="_blank"}
+[^Roma 13:1 et al]: [Roma 13:1](https://alkitab.mobi/tb/passage/Rom+13%3A1){target="_blank"}; [1 Korintus 3:11](https://alkitab.mobi/tb/passage/1Ko+3%3A11){target="_blank"}, [Kisah Para Rasul 5:29](https://alkitab.mobi/tb/passage/Kis+5%3A29){target="_blank"}; [1 Petrus 2:13-17](https://alkitab.mobi/tb/passage/1Pt+2%3A13-17){target="_blank"}; [Wahyu 13](https://alkitab.mobi/tb/passage/Why+13){target="_blank"}
+[^1 Timotius 2:1-2; Roma 13:1-7]: [1 Timotius 2:1-2](https://alkitab.mobi/tb/passage/1Ti+2%3A1-2){target="_blank"}; [Roma 13:1-7](https://alkitab.mobi/tb/passage/Rom+13%3A1-7){target="_blank"}
+[^1 Timotius 4:4-5 et al]: [1 Timotius 4:4-5](https://alkitab.mobi/tb/passage/1Ti+4%3A4-5){target="_blank"}; [Matius 15](https://alkitab.mobi/tb/passage/Mat+15){target="_blank"}; [Roma 14:17](https://alkitab.mobi/tb/passage/Rom+14%3A17){target="_blank"}; [Kisah Para Rasul 15](https://alkitab.mobi/tb/passage/Kis+15){target="_blank"}; [Kolose 2:16-23](https://alkitab.mobi/tb/passage/Kol+2%3A16-23){target="_blank"}
+[^Roma 14:7-9]: [Roma 14:7-9](https://alkitab.mobi/tb/passage/Rom+14%3A7-9){target="_blank"}
+[^Wahyu 14:13]: [Wahyu 14:13](https://alkitab.mobi/tb/passage/Why+14%3A13){target="_blank"}
+[^Yohanes 5:28 et al]: [Yohanes 5:28](https://alkitab.mobi/tb/passage/Yoh+5%3A28){target="_blank"}; [1 Tesalonika 4:16](https://alkitab.mobi/tb/passage/1Te+4%3A16){target="_blank"}; [Matius 24:3,42](https://alkitab.mobi/tb/passage/Mat+24%3A3,42){target="_blank"}; [Lukas 21:28](https://alkitab.mobi/tb/passage/Luk+21%3A28){target="_blank"}; [Matius 25](https://alkitab.mobi/tb/passage/Mat+25){target="_blank"}; [Wahyu 20:11-15](https://alkitab.mobi/tb/passage/Why+20%3A11-15){target="_blank"}; [1 Korintus 15:52](https://alkitab.mobi/tb/passage/1Ko+15%3A52){target="_blank"}; [2 Korintus 5:10](https://alkitab.mobi/tb/passage/2Ko+5%3A10){target="_blank"}; [Yesaya 60:10-16](https://alkitab.mobi/tb/passage/Yes+60%3A10-16){target="_blank"}
+[^Ibrani 1:14 et al]: [Ibrani 1:14](https://alkitab.mobi/tb/passage/Ibr+1%3A14){target="_blank"}; [Kejadian 22:11-12](https://alkitab.mobi/tb/passage/Kej+22%3A11-12){target="_blank"}; [Lukas 1:11,26](https://alkitab.mobi/tb/passage/Luk+1%3A11,26){target="_blank"}; [2:9](https://alkitab.mobi/tb/passage/Luk+2%3A9){target="_blank"}; [Matius 28:2](https://alkitab.mobi/tb/passage/Mat+28%3A2){target="_blank"}; [Yudas 9](https://alkitab.mobi/tb/passage/Yud+1%3A9){target="_blank"}; [Wahyu 12:7-9](https://alkitab.mobi/tb/passage/Why+12%3A7-9){target="_blank"}; [14:6](https://alkitab.mobi/tb/passage/Why+14%3A6){target="_blank"}; [20:1-3](https://alkitab.mobi/tb/passage/Why+20%3A1-3){target="_blank"}; [22:18](https://alkitab.mobi/tb/passage/Why+22%3A18){target="_blank"}; [Maleakhi 3:1](https://alkitab.mobi/tb/passage/Mal+3%3A1){target="_blank"}

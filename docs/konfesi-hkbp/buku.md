@@ -8,10 +8,10 @@
 
     Pengembangan lebih lanjut akan dilakukan dengan membuat halaman-halaman baru yang berisi Konfesi 1951 dan Konfesi 1956 secara terpisah. Harap maklum.
 
-    - [Konfesi 1951 (Bahasa Indonesia)](../1951/id.md)
-    - [Konfesi 1951 (Bahasa Batak)](../1951/bbc.md)
-    - [Konfesi 1966 (Bahasa Indonesia)](../1966/id.md)
-    - [Konfesi 1966 (Bahasa Batak)](../1966/bbc.md)
+    - [Konfesi 1951 (Bahasa Indonesia)](1951/id.md)
+    - [Konfesi 1951 (Bahasa Batak)](1951/bbc.md)
+    - [Konfesi 1966 (Bahasa Indonesia)](1966/id.md)
+    - [Konfesi 1966 (Bahasa Batak)](1966/bbc.md)
 
 ## Konfesi 1951: Pendahuluan
 
@@ -141,7 +141,7 @@ Allah adalah Esa, tidak bermula dan tak berkesudahan, Maha Kuasa, Tidak berobah-
 
 Tuhan Allah adalah Esa, dan dalam pada itu Ia adalah Tritunggal, yaitu: Allah Bapa, Allah Anak dan Allah Rohu'lkudus.[^Yohanes 5:19 et al]
 
-Allah Bapak yang melahirkan Allah Anak dari diriNya sendiri pada mula pertama sampai selama-lamanya, artinya sama seperti Bapa yang tiada bermula dan tidak berkesudahan, demikian pula halnya dengan Anak. Dan demikian pula Rohul'kudus tiada bermula dan tiada berkesudahan. Ialah yang datang dari Allah Bapa dan Allah Anak. Yohanes 15:26.
+Allah Bapak yang melahirkan Allah Anak dari diriNya sendiri pada mula pertama sampai selama-lamanya, artinya sama seperti Bapa yang tiada bermula dan tidak berkesudahan, demikian pula halnya dengan Anak. Dan demikian pula Rohul'kudus tiada bermula dan tiada berkesudahan. Ialah yang datang dari Allah Bapa dan Allah Anak.[^Yohanes 15:26]
 
 Dengan ajaran ini kita menolak dan melawan pengertian bahwa Allah adalah Esa saja dengan pengertian bahwa Allah Anak dan Allah Rohu'lkudus kurang dari Allah Bapa.
 
@@ -489,7 +489,7 @@ Kita menentang setiap kegiatan yang merusak lingkungan, seperti membakar dan men
 [^2 Korintus 4:13]: 2 Korintus 4:13
 [^1 Petrus 3:15]: 1 Petrus 3:15. Bandingkan juga dengan 1 Timotius 4:6: Jikalau engkau ajarkan segala perkara itu kepada saudara-saudara kita, niscaya engkau akan menjadi hamba yang baik kepada Kristus Yesus, mahir di dalam pengajaran iman dan segala pengajaran yang baik.
 [^Efesus 4:5]: Efesus 4:5
-[^2 Korintus 1:21-22, 2 Timotius 3:16-17]: 2 Korintus 1:21-22, 2 Timotius 3:16-17
+[^2 Korintus 1:21-22]: 2 Korintus 1:21-22, 2 Timotius 3:16-17
 [^Matius 16:16]: Matius 16:16
 [^Ulangan 6:4 et al]: Ulangan 6:4; Keluaran 3:14a; Kejadian 17:1; Mazmur 105:8; 1 Korintus 1:9; 2 Tesalonika 3:3; Lukas 1:37; Roma 11:33; Ulangan 1:17; Roma 2:11; 1 Korintus 1:30; Mazmur 103:8; 24:1; Yesaya 6:3; Yohanes 3:16; 1 Timotius 6:15-16
 [^Yohanes 5:19 et al]: Yohanes 5:19; 14:11; 1:1; 15:26; 2 Korintus 13:13; Matius 28:19

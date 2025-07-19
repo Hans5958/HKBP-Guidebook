@@ -310,62 +310,62 @@ Tahaporseni jula tahatidanghon do: Ia angka surusuruan : Na tinompa ni Debata do
 
    	- https://www.scribd.com/document/378414835/Pengakuan-Iman-HKBP-1996
 
-[^2 Timoteus 3:16a]: 2 Timoteus 3:16a
-[^2 Korint 1:21-22]: 2 Korint 1:21-22
-[^2 Timoteus 3:16-17]: 2 Timoteus 3:16-17
-[^1 Tessalonik 2:13]: 1 Tessalonik 2:13
-[^Kolosse 1:23]: Kolosse 1:23
-[^2 Timoteus 3:14]: 2 Timoteus 3:14
-[^1 Timoteus 4:6]: 1 Timoteus 4:6
-[^2 Timoteus 4:2]: 2 Timoteus 4:2
-[^Mateus 28:19]: Mateus 28:19
-[^1 Petrus 3:15]: 1 Petrus 3:15
-[^1 Timoteus 6:12]: 1 Timoteus 6:12
-[^5 Musa 6:7]: 5 Musa 6:7
-[^5 Musa 6:4 et al]: 5 Musa 6:4; 2 Musa 3:14; 1 Musa 17:1; Psalmen 105:8; 1 Korint 1:9; 2 Tessalonik 3:3; Lukas 1:37; Rom 11:33; 5 Musa 10:17; Rom 2:11; 1 Korint 1:30; Psalmen 103:8; 24:1; Jesaya 6:3; Johannes 3:16; 1 Timoteus 6:15-16
+[^2 Timoteus 3:16a]: [2 Timoteus 3:16a](https://alkitab.mobi/toba/passage/2Ti+3%3A16){target="_blank"}
+[^2 Korint 1:21-22]: [2 Korint 1:21-22](https://alkitab.mobi/toba/passage/2Ko+1%3A21-22){target="_blank"}
+[^2 Timoteus 3:16-17]: [2 Timoteus 3:16-17](https://alkitab.mobi/toba/passage/2Ti+3%3A16-17){target="_blank"}
+[^1 Tessalonik 2:13]: [1 Tessalonik 2:13](https://alkitab.mobi/toba/passage/1Te+2%3A13){target="_blank"}
+[^Kolosse 1:23]: [Kolosse 1:23](https://alkitab.mobi/toba/passage/Kol+1%3A23){target="_blank"}
+[^2 Timoteus 3:14]: [2 Timoteus 3:14](https://alkitab.mobi/toba/passage/2Ti+3%3A14){target="_blank"}
+[^1 Timoteus 4:6]: [1 Timoteus 4:6](https://alkitab.mobi/toba/passage/1Ti+4%3A6){target="_blank"}
+[^2 Timoteus 4:2]: [2 Timoteus 4:2](https://alkitab.mobi/toba/passage/2Ti+4%3A2){target="_blank"}
+[^Mateus 28:19]: [Mateus 28:19](https://alkitab.mobi/toba/passage/Mat+28%3A19){target="_blank"}
+[^1 Petrus 3:15]: [1 Petrus 3:15](https://alkitab.mobi/toba/passage/1Pt+3%3A15){target="_blank"}
+[^1 Timoteus 6:12]: [1 Timoteus 6:12](https://alkitab.mobi/toba/passage/1Ti+6%3A12){target="_blank"}
+[^5 Musa 6:7]: [5 Musa 6:7](https://alkitab.mobi/toba/passage/Ula+6%3A7){target="_blank"}
+[^5 Musa 6:4 et al]: [5 Musa 6:4](https://alkitab.mobi/toba/passage/Ula+6%3A4){target="_blank"}; [2 Musa 3:14](https://alkitab.mobi/toba/passage/Kel+3%3A14){target="_blank"}; [1 Musa 17:1](https://alkitab.mobi/toba/passage/Kej+17%3A1){target="_blank"}; [Psalmen 105:8](https://alkitab.mobi/toba/passage/Mzm+105%3A8){target="_blank"}; [1 Korint 1:9](https://alkitab.mobi/toba/passage/1Ko+1%3A9){target="_blank"}; [2 Tessalonik 3:3](https://alkitab.mobi/toba/passage/2Te+3%3A3){target="_blank"}; [Lukas 1:37](https://alkitab.mobi/toba/passage/Luk+1%3A37){target="_blank"}; [Rom 11:33](https://alkitab.mobi/toba/passage/Rom+11%3A33){target="_blank"}; [5 Musa 10:17](https://alkitab.mobi/toba/passage/Ula+10%3A17){target="_blank"}; [Rom 2:11](https://alkitab.mobi/toba/passage/Rom+2%3A11){target="_blank"}; [1 Korint 1:30](https://alkitab.mobi/toba/passage/1Ko+1%3A30){target="_blank"}; [Psalmen 103:8](https://alkitab.mobi/toba/passage/Mzm+103%3A8){target="_blank"}; [24:1](https://alkitab.mobi/toba/passage/Mzm+24%3A1){target="_blank"}; [Jesaya 6:3](https://alkitab.mobi/toba/passage/Yes+6%3A3){target="_blank"}; [Johannes 3:16](https://alkitab.mobi/toba/passage/Yoh+3%3A16){target="_blank"}; [1 Timoteus 6:15-16](https://alkitab.mobi/toba/passage/1Ti+6%3A15-16){target="_blank"}
 [^RPP HKBP]: patudos tu R.P.P HKBP. II 2B hal 15 dohot III. I. a. c. d. hal. 17-180
-[^Johannes 5:19 et al]: Johannes 5:19; 14:11; 1:1; 15:26; 2 Korint 13:13; Mateus 28:19
-[^Mateus 28:18 et al]: Mateus 28:18; Heber 9:14; Pilippi 2:9-14; Epesus 1:20-22; 1:7; Johannes 3:16
-[^Jeremia 11:2 et al]: Jeremia 11:2; 9:6; Joel 3:1; Poda 8:12-31; 1 Korint 14:3-6, 28; Pangungkapon 22
-[^Rom 8:14-17 et al]: Rom 8:14-17; 1 Korint 3:16; Titus 3:5; Ulaon ni Apostel 2; Haporseaon ponggol patoluhon dohot lapatanna
-[^Galatia 5:22-23; Epesus 4:3-6]: Galatia 5:22-23; Epesus 4:3-6
-[^1 Korint 12:3 et al]: 1 Korint 12:3; Johannes 16:15; 2 Petrus 1:20-21
-[^Johannes 1:14]: Johannes 1:14
-[^Mateus 28:19-20]: Mateus 28:19-20
-[^Rom 7:17]: Rom 7:17
-[^1 Korint 3:9]: 1 Korint 3:9
-[^1 Musa 1:27]: 1 Musa 1:27
-[^Galatia 3:28]: Galatia 3:28
-[^Galatia 6:2]: Galatia 6:2
-[^Epesus 5:21; Poda 31:10]: Epesus 5:21; Poda 31:10
-[^1 Musa 2:5-15]: 1 Musa 2:5-15
-[^Kolosse 1:15-20; Rom 8:19-33]: Kolosse 1:15-20; Rom 8:19-33
-[^Psalmen 8:4-10]: Psalmen 8:4-10
-[^5 Musa 20:19-20]: 5 Musa 20:19-20
-[^Psalmen 104:1-23; Pangungkapon 22:1-2]: Psalmen 104:1-23; Pangungkapon 22:1-2
-[^1 Johannes 3:16 et al]: 1 Johannes 3:16; 2 Korint 8:9; Ulaon ni Apostel 4:12; Galatia 5:22
-[^Rom 8:38-39]: Rom 8:38-39
-[^1 Korint 1:2 et al]: 1 Korint 1:2; 1 Petrus 2:9; 1 Korint 3; Johannes 17; Mateus 13:24-30
-[^Pangungkapon 1:6 et al]: Pangungkapon 1:6; Epesus 3:21; 1 Korint 3:16; 1 Petrus 2:9; Epesus 2:22
-[^Pangungkapon 7:9 et al]: Pangungkapon 7:9; Galatia 3:28; 1 Korint 11:7-12
-[^Epesus 4:4-6 et al]: Epesus 4:4-6; 1 Korint 12:20; Johannes 17:20-21
-[^Mateus 28:19; Markus 16:15-16]: Mateus 28:19; Markus 16:15-16
-[^Mateus 28:19 et al]: Mateus 28:19; Markus 16:15-16; Mateus 26; Markus 14; Lukas 22; 1 Korint 11
-[^Markus 10:14 et al]: Markus 10:14; Lukas 18:16; Ulaon ni Apostel 2:41; 10:48; 16:33; Rom 6:4; 1 Korint 10:1-9; Titus 3:5; Heber 11:29; 1 Petrus 3:21
-[^Mateus 26:20-30 et al]: Mateus 26:20-30; Markus 14:17-26; Lukas 22:14-20; 1 Korint 11:17-34
-[^1 Korint 2:28 et al]: 1 Korint 2:28; 1 Timoteus 6:5; Johannes 1:49; 1 Petrus 2:9
-[^Epesus 4:11 et al]: Epesus 4:11; Ulaon ni Apostel 6:1-7; 14:23; 15:2; 20:28; Pilippi 1:1; 1 Timoteus 3:1; Titus 1:7; 1 Timoteus 3:3; 4:11; Mateus 23:11; 1 Korint 12:5-7
-[^2 Korint 11:13; Ulaon ni Apostel 8:16]: 2 Korint 11:13; Ulaon ni Apostel 8:16
-[^1 Petrus 5:4; 2:25]: 1 Petrus 5:4; 2:25
-[^1 Korint 3:11; 14:33; 1 Petrus 2:4-6]: 1 Korint 3:11; 14:33; 1 Petrus 2:4-6
-[^Johannes 20:19-26 et al]: Johannes 20:19-26; 1 Korint 16:2; Ulaon ni Apostel 20:7; Pangungkapon 1:10
-[^Johannes 5:17]: Johannes 5:17
-[^Epesus 2:8; Rom 5:1]: Epesus 2:8; Rom 5:1
-[^2 Korint 9:2-11]: 2 Korint 9:2-11
-[^Rom 13 et al]: Rom 13; 1 Korint 3:11; Ulaon ni Apostel 5:29; 1 Petrus 2:13-17; Pangungkapon 13
-[^1 Timoteus 2:1-2; Rom 13:1-7]: 1 Timoteus 2:1-2; Rom 13:1-7
-[^1 Timoteus 4:4-5 et al]: 1 Timoteus 4:4-5; Mateus 15; Rom 14:17; Ulaon ni Apostel 15; Kolosse 2:16-23
-[^Rom 14:7-9]: Rom 14:7-9
-[^Pangungkapon 14:13]: Pangungkapon 14:13
-[^Johannes 5:28 et al]: Johannes 5:28; 1 Tessalonik 4:16; Mateus 24:3,42; Lukas 21:28; Mateus 25; Pangungkapon 20:11-15; 21; 1 Korint 15:52; 2 Korint 5:10; Jesaya 60:10-16
-[^Heber 1:14 et al]: Heber 1:14; 1 Musa 22:11-12; Lukas 1:11,26; 2:9; Mateus 28:2; Judas 9; Pangungkapon 12:7-9; 14:6; 20:1-3; 22:18; Maleaki 3:1
+[^Johannes 5:19 et al]: [Johannes 5:19](https://alkitab.mobi/toba/passage/Yoh+5%3A19){target="_blank"}; [14:11](https://alkitab.mobi/toba/passage/Yoh+14%3A11){target="_blank"}; [1:1](https://alkitab.mobi/toba/passage/Yoh+1%3A1){target="_blank"}; [15:26](https://alkitab.mobi/toba/passage/Yoh+15%3A26){target="_blank"}; [2 Korint 13:13](https://alkitab.mobi/toba/passage/2Ko+13%3A13){target="_blank"}; [Mateus 28:19](https://alkitab.mobi/toba/passage/Mat+28%3A19){target="_blank"}
+[^Mateus 28:18 et al]: [Mateus 28:18](https://alkitab.mobi/toba/passage/Mat+28%3A18){target="_blank"}; [Heber 9:14](https://alkitab.mobi/toba/passage/Ibr+9%3A14){target="_blank"}; [Pilippi 2:9-14](https://alkitab.mobi/toba/passage/Flp+2%3A9-14){target="_blank"}; [Epesus 1:20-22](https://alkitab.mobi/toba/passage/Efe+1%3A20-22){target="_blank"}; [1:7](https://alkitab.mobi/toba/passage/Efe+1%3A7){target="_blank"}; [Johannes 3:16](https://alkitab.mobi/toba/passage/Yoh+3%3A16){target="_blank"}
+[^Jeremia 11:2 et al]: [Jeremia 11:2](https://alkitab.mobi/toba/passage/Yer+11%3A2){target="_blank"}; [9:6](https://alkitab.mobi/toba/passage/Yer+9%3A6){target="_blank"}; [Joel 3:1](https://alkitab.mobi/toba/passage/Yoe+3%3A1){target="_blank"}; [Poda 8:12-31](https://alkitab.mobi/toba/passage/Ams+8%3A12-31){target="_blank"}; [1 Korint 14:3-6, 28](https://alkitab.mobi/toba/passage/1Ko+14%3A3-6%2C28){target="_blank"}; [Pangungkapon 22](https://alkitab.mobi/toba/passage/Why+22){target="_blank"}
+[^Rom 8:14-17 et al]: [Rom 8:14-17](https://alkitab.mobi/toba/passage/Rom+8%3A14-17){target="_blank"}; [1 Korint 3:16](https://alkitab.mobi/toba/passage/1Ko+3%3A16){target="_blank"}; [Titus 3:5](https://alkitab.mobi/toba/passage/Tit+3%3A5){target="_blank"}; [Ulaon ni Apostel 2](https://alkitab.mobi/toba/passage/Kis+2){target="_blank"}; Haporseaon ponggol patoluhon dohot lapatanna
+[^Galatia 5:22-23; Epesus 4:3-6]: [Galatia 5:22-23](https://alkitab.mobi/toba/passage/Gal+5%3A22-23){target="_blank"}; [Epesus 4:3-6](https://alkitab.mobi/toba/passage/Efe+4%3A3-6){target="_blank"}
+[^1 Korint 12:3 et al]: [1 Korint 12:3](https://alkitab.mobi/toba/passage/1Ko+12%3A3){target="_blank"}; [Johannes 16:15](https://alkitab.mobi/toba/passage/Yoh+16%3A15){target="_blank"}; [2 Petrus 1:20-21](https://alkitab.mobi/toba/passage/2Pt+1%3A20-21){target="_blank"}
+[^Johannes 1:14]: [Johannes 1:14](https://alkitab.mobi/toba/passage/Yoh+1%3A14){target="_blank"}
+[^Mateus 28:19-20]: [Mateus 28:19-20](https://alkitab.mobi/toba/passage/Mat+28%3A19-20){target="_blank"}
+[^Rom 7:17]: [Rom 7:17](https://alkitab.mobi/toba/passage/Rom+7%3A17){target="_blank"}
+[^1 Korint 3:9]: [1 Korint 3:9](https://alkitab.mobi/toba/passage/1Ko+3%3A9){target="_blank"}
+[^1 Musa 1:27]: [1 Musa 1:27](https://alkitab.mobi/toba/passage/Kej+1%3A27){target="_blank"}
+[^Galatia 3:28]: [Galatia 3:28](https://alkitab.mobi/toba/passage/Gal+3%3A28){target="_blank"}
+[^Galatia 6:2]: [Galatia 6:2](https://alkitab.mobi/toba/passage/Gal+6%3A2){target="_blank"}
+[^Epesus 5:21; Poda 31:10]: [Epesus 5:21](https://alkitab.mobi/toba/passage/Efe+5%3A21){target="_blank"}; [Poda 31:10](https://alkitab.mobi/toba/passage/Ams+31%3A10){target="_blank"}
+[^1 Musa 2:5-15]: [1 Musa 2:5-15](https://alkitab.mobi/toba/passage/Kej+2%3A5-15){target="_blank"}
+[^Kolosse 1:15-20; Rom 8:19-33]: [Kolosse 1:15-20](https://alkitab.mobi/toba/passage/Kol+1%3A15-20){target="_blank"}; [Rom 8:19-33](https://alkitab.mobi/toba/passage/Rom+8%3A19-33){target="_blank"}
+[^Psalmen 8:4-10]: [Psalmen 8:4-10](https://alkitab.mobi/toba/passage/Mzm+8%3A4-10){target="_blank"}
+[^5 Musa 20:19-20]: [5 Musa 20:19-20](https://alkitab.mobi/toba/passage/Ula+20%3A19-20){target="_blank"}
+[^Psalmen 104:1-23; Pangungkapon 22:1-2]: [Psalmen 104:1-23](https://alkitab.mobi/toba/passage/Mzm+104%3A1-23){target="_blank"}; [Pangungkapon 22:1-2](https://alkitab.mobi/toba/passage/Why+22%3A1-2){target="_blank"}
+[^1 Johannes 3:16 et al]: [1 Johannes 3:16](https://alkitab.mobi/toba/passage/1Yo+3%3A16){target="_blank"}; [2 Korint 8:9](https://alkitab.mobi/toba/passage/2Ko+8%3A9){target="_blank"}; [Ulaon ni Apostel 4:12](https://alkitab.mobi/toba/passage/Kis+4%3A12){target="_blank"}; [Galatia 5:22](https://alkitab.mobi/toba/passage/Gal+5%3A22){target="_blank"}
+[^Rom 8:38-39]: [Rom 8:38-39](https://alkitab.mobi/toba/passage/Rom+8%3A38-39){target="_blank"}
+[^1 Korint 1:2 et al]: [1 Korint 1:2](https://alkitab.mobi/toba/passage/1Ko+1%3A2){target="_blank"}; [1 Petrus 2:9](https://alkitab.mobi/toba/passage/1Pt+2%3A9){target="_blank"}; [1 Korint 3](https://alkitab.mobi/toba/passage/1Ko+3){target="_blank"}; [Johannes 17](https://alkitab.mobi/toba/passage/Yoh+17){target="_blank"}; [Mateus 13:24-30](https://alkitab.mobi/toba/passage/Mat+13%3A24-30){target="_blank"}
+[^Pangungkapon 1:6 et al]: [Pangungkapon 1:6](https://alkitab.mobi/toba/passage/Why+1%3A6){target="_blank"}; [Epesus 3:21](https://alkitab.mobi/toba/passage/Efe+3%3A21){target="_blank"}; [1 Korint 3:16](https://alkitab.mobi/toba/passage/1Ko+3%3A16){target="_blank"}; [1 Petrus 2:9](https://alkitab.mobi/toba/passage/1Pt+2%3A9){target="_blank"}; [Epesus 2:22](https://alkitab.mobi/toba/passage/Efe+2%3A22){target="_blank"}
+[^Pangungkapon 7:9 et al]: [Pangungkapon 7:9](https://alkitab.mobi/toba/passage/Why+7%3A9){target="_blank"}; [Galatia 3:28](https://alkitab.mobi/toba/passage/Gal+3%3A28){target="_blank"}; [1 Korint 11:7-12](https://alkitab.mobi/toba/passage/1Ko+11%3A7-12){target="_blank"}
+[^Epesus 4:4-6 et al]: [Epesus 4:4-6](https://alkitab.mobi/toba/passage/Efe+4%3A4-6){target="_blank"}; [1 Korint 12:20](https://alkitab.mobi/toba/passage/1Ko+12%3A20){target="_blank"}; [Johannes 17:20-21](https://alkitab.mobi/toba/passage/Yoh+17%3A20-21){target="_blank"}
+[^Mateus 28:19; Markus 16:15-16]: [Mateus 28:19](https://alkitab.mobi/toba/passage/Mat+28%3A19){target="_blank"}; [Markus 16:15-16](https://alkitab.mobi/toba/passage/Mrk+16%3A15-16){target="_blank"}
+[^Mateus 28:19 et al]: [Mateus 28:19](https://alkitab.mobi/toba/passage/Mat+28%3A19){target="_blank"}; [Markus 16:15-16](https://alkitab.mobi/toba/passage/Mrk+16%3A15-16){target="_blank"}; [Mateus 26](https://alkitab.mobi/toba/passage/Mat+26){target="_blank"}; [Markus 14](https://alkitab.mobi/toba/passage/Mrk+14){target="_blank"}; [Lukas 22](https://alkitab.mobi/toba/passage/Luk+22){target="_blank"}; [1 Korint 11](https://alkitab.mobi/toba/passage/1Ko+11){target="_blank"}
+[^Markus 10:14 et al]: [Markus 10:14](https://alkitab.mobi/toba/passage/Mrk+10%3A14){target="_blank"}; [Lukas 18:16](https://alkitab.mobi/toba/passage/Luk+18%3A16){target="_blank"}; [Ulaon ni Apostel 2:41](https://alkitab.mobi/toba/passage/Kis+2%3A41){target="_blank"}; [10:48](https://alkitab.mobi/toba/passage/Kis+10%3A48){target="_blank"}; [16:33](https://alkitab.mobi/toba/passage/Kis+16%3A33){target="_blank"}; [Rom 6:4](https://alkitab.mobi/toba/passage/Rom+6%3A4){target="_blank"}; [1 Korint 10:1-9](https://alkitab.mobi/toba/passage/1Ko+10%3A1-9){target="_blank"}; [Titus 3:5](https://alkitab.mobi/toba/passage/Tit+3%3A5){target="_blank"}; [Heber 11:29](https://alkitab.mobi/toba/passage/Ibr+11%3A29){target="_blank"}; [1 Petrus 3:21](https://alkitab.mobi/toba/passage/1Pt+3%3A21){target="_blank"}
+[^Mateus 26:20-30 et al]: [Mateus 26:20-30](https://alkitab.mobi/toba/passage/Mat+26%3A20-30){target="_blank"}; [Markus 14:17-26](https://alkitab.mobi/toba/passage/Mrk+14%3A17-26){target="_blank"}; [Lukas 22:14-20](https://alkitab.mobi/toba/passage/Luk+22%3A14-20){target="_blank"}; [1 Korint 11:17-34](https://alkitab.mobi/toba/passage/1Ko+11%3A17-34){target="_blank"}
+[^1 Korint 2:28 et al]: [1 Korint 12:28](https://alkitab.mobi/toba/passage/1Ko+12%3A28){target="_blank"}; [1 Timoteus 6:5](https://alkitab.mobi/toba/passage/1Ti+6%3A5){target="_blank"}; [Johannes 1:49](https://alkitab.mobi/toba/passage/Yoh+1%3A49){target="_blank"}; [1 Petrus 2:9](https://alkitab.mobi/toba/passage/1Pt+2%3A9){target="_blank"}
+[^Epesus 4:11 et al]: [Epesus 4:11](https://alkitab.mobi/toba/passage/Efe+4%3A11){target="_blank"}; [Ulaon ni Apostel 6:1-7](https://alkitab.mobi/toba/passage/Kis+6%3A1-7){target="_blank"}; [14:23](https://alkitab.mobi/toba/passage/Kis+14%3A23){target="_blank"}; [15:2](https://alkitab.mobi/toba/passage/Kis+15%3A2){target="_blank"}; [20:28](https://alkitab.mobi/toba/passage/Kis+20%3A28){target="_blank"}; [Pilippi 1:1](https://alkitab.mobi/toba/passage/Flp+1%3A1){target="_blank"}; [1 Timoteus 3:1](https://alkitab.mobi/toba/passage/1Ti+3%3A1){target="_blank"}; [Titus 1:7](https://alkitab.mobi/toba/passage/Tit+1%3A7){target="_blank"}; [1 Timoteus 3:3](https://alkitab.mobi/toba/passage/1Ti+3%3A3){target="_blank"}; [4:11](https://alkitab.mobi/toba/passage/1Ti+4%3A11){target="_blank"}; [Mateus 23:11](https://alkitab.mobi/toba/passage/Mat+23%3A11){target="_blank"}; [1 Korint 12:5-7](https://alkitab.mobi/toba/passage/1Ko+12%3A5-7){target="_blank"}
+[^2 Korint 11:13; Ulaon ni Apostel 8:16]: [2 Korint 13:13](https://alkitab.mobi/toba/passage/2Ko+13%3A13){target="_blank"}; [Ulaon ni Apostel 8:16](https://alkitab.mobi/toba/passage/Kis+8%3A16){target="_blank"}
+[^1 Petrus 5:4; 2:25]: [1 Petrus 5:4](https://alkitab.mobi/toba/passage/1Pt+5%3A4){target="_blank"}; [2:25](https://alkitab.mobi/toba/passage/1Pt+2%3A25){target="_blank"}
+[^1 Korint 3:11; 14:33; 1 Petrus 2:4-6]: [1 Korint 3:11](https://alkitab.mobi/toba/passage/1Ko+3%3A11){target="_blank"}; [14:33](https://alkitab.mobi/toba/passage/1Ko+14%3A33){target="_blank"}; [1 Petrus 2:4-6](https://alkitab.mobi/toba/passage/1Pt+2%3A4-6){target="_blank"}
+[^Johannes 20:19-26 et al]: [Johannes 20:19-26](https://alkitab.mobi/toba/passage/Yoh+20%3A19-26){target="_blank"}; [1 Korint 16:2](https://alkitab.mobi/toba/passage/1Ko+16%3A2){target="_blank"}; [Ulaon ni Apostel 20:7](https://alkitab.mobi/toba/passage/Kis+20%3A7){target="_blank"}; [Pangungkapon 1:10](https://alkitab.mobi/toba/passage/Why+1%3A10){target="_blank"}
+[^Johannes 5:17]: [Johannes 5:17](https://alkitab.mobi/toba/passage/Yoh+5%3A17){target="_blank"}
+[^Epesus 2:8; Rom 5:1]: [Epesus 2:8](https://alkitab.mobi/toba/passage/Efe+2%3A8){target="_blank"}; [Rom 5:1](https://alkitab.mobi/toba/passage/Rom+5%3A1){target="_blank"}
+[^2 Korint 9:2-11]: [2 Korint 9:2-11](https://alkitab.mobi/toba/passage/2Ko+9%3A2-11){target="_blank"}
+[^Rom 13 et al]: [Rom 13](https://alkitab.mobi/toba/passage/Rom+13){target="_blank"}; [1 Korint 3:11](https://alkitab.mobi/toba/passage/1Ko+3%3A11){target="_blank"}; [Ulaon ni Apostel 5:29](https://alkitab.mobi/toba/passage/Kis+5%3A29){target="_blank"}; [1 Petrus 2:13-17](https://alkitab.mobi/toba/passage/1Pt+2%3A13-17){target="_blank"}; [Pangungkapon 13](https://alkitab.mobi/toba/passage/Why+13){target="_blank"}
+[^1 Timoteus 2:1-2; Rom 13:1-7]: [1 Timoteus 2:1-2](https://alkitab.mobi/toba/passage/1Ti+2%3A1-2){target="_blank"}; [Rom 13:1-7](https://alkitab.mobi/toba/passage/Rom+13%3A1-7){target="_blank"}
+[^1 Timoteus 4:4-5 et al]: [1 Timoteus 4:4-5](https://alkitab.mobi/toba/passage/1Ti+4%3A4-5){target="_blank"}; [Mateus 15](https://alkitab.mobi/toba/passage/Mat+15){target="_blank"}; [Rom 14:17](https://alkitab.mobi/toba/passage/Rom+14%3A17){target="_blank"}; [Ulaon ni Apostel 15](https://alkitab.mobi/toba/passage/Kis+15){target="_blank"}; [Kolosse 2:16-23](https://alkitab.mobi/toba/passage/Kol+2%3A16-23){target="_blank"}
+[^Rom 14:7-9]: [Rom 14:7-9](https://alkitab.mobi/toba/passage/Rom+14%3A7-9){target="_blank"}
+[^Pangungkapon 14:13]: [Pangungkapon 14:13](https://alkitab.mobi/toba/passage/Why+14%3A13){target="_blank"}
+[^Johannes 5:28 et al]: [Johannes 5:28](https://alkitab.mobi/toba/passage/Yoh+5%3A28){target="_blank"}; [1 Tessalonik 4:16](https://alkitab.mobi/toba/passage/1Te+4%3A16){target="_blank"}; [Mateus 24:3,42](https://alkitab.mobi/toba/passage/Mat+24%3A3%2C42){target="_blank"}; [Lukas 21:28](https://alkitab.mobi/toba/passage/Luk+21%3A28){target="_blank"}; [Mateus 25](https://alkitab.mobi/toba/passage/Mat+25){target="_blank"}; [Pangungkapon 20:11-15](https://alkitab.mobi/toba/passage/Why+20%3A11-15){target="_blank"};(https://alkitab.mobi/toba/passage/Why+21){target="_blank"}; [1 Korint 15:52](https://alkitab.mobi/toba/passage/1Ko+15%3A52){target="_blank"}; [2 Korint 5:10](https://alkitab.mobi/toba/passage/2Ko+5%3A10){target="_blank"}; [Jesaya 60:10-16](https://alkitab.mobi/toba/passage/Yes+60%3A10-16){target="_blank"}
+[^Heber 1:14 et al]: [Heber 1:14](https://alkitab.mobi/toba/passage/Ibr+1%3A14){target="_blank"}; [1 Musa 22:11-12](https://alkitab.mobi/toba/passage/Kej+22%3A11-12){target="_blank"}; [Lukas 1:11,26](https://alkitab.mobi/toba/passage/Luk+1%3A11%2C26){target="_blank"}; [2:9](https://alkitab.mobi/toba/passage/Luk+2%3A9){target="_blank"}; [Mateus 28:2](https://alkitab.mobi/toba/passage/Mat+28%3A2){target="_blank"}; [Judas 9](https://alkitab.mobi/toba/passage/Yud+1%3A9){target="_blank"}; [Pangungkapon 12:7-9](https://alkitab.mobi/toba/passage/Why+12%3A7-9){target="_blank"}; [14:6](https://alkitab.mobi/toba/passage/Why+14%3A6){target="_blank"}; [20:1-3](https://alkitab.mobi/toba/passage/Why+20%3A1-3){target="_blank"}; [22:18](https://alkitab.mobi/toba/passage/Why+22%3A18){target="_blank"}; [Maleaki 3:1](https://alkitab.mobi/toba/passage/Mal+3%3A1){target="_blank"}
