@@ -21,18 +21,28 @@ jobs:
         uses: actions/setup-python@v7
         with:
           python-version: 3.x
-      - name: Cache dependencies
+      - name: Get MaterialX for MkDocs cache ID
+        id: mkdocs-materialx-cache-id
+        run: echo "id=$(date --utc '+%V')" >> $GITHUB_OUTPUT
+      - name: Cache MaterialX for MkDocs depenencides
+        uses: actions/cache@v6
+        with:
+          key: mkdocs-materialx-${{ steps.mkdocs-materialx-cache-id.outputs.id }}
+          path: ~/.cache 
+          restore-keys: |
+            mkdocs-materialx-
+      - name: Cache Python dependencies
         uses: actions/cache@v6
         with:
           path: ~/.cache/pip
-          key: ${{ runner.os }}-pip-${{ hashFiles('**/requirements.txt') }}
+          key: pip-${{ hashFiles('**/requirements.txt') }}
           restore-keys: |
-            ${{ runner.os }}-pip-
+            pip-
       - name: Install dependencies
         run: pip install -r requirements.txt
       - name: Build site
-        run: mkdocs build
-      - name: Upload GH Pages artifact
+        run: properdocs build
+      - name: Upload GitHub Pages artifact
         uses: actions/upload-pages-artifact@v5
         with:
           path: ./site
