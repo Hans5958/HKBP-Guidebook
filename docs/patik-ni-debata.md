@@ -1,4 +1,7 @@
-# Patik Ni Debata
+---
+title: Patik Ni Debata
+subtitle: Bahasa Batak
+---
 
 ## Patik Parjolo
 Ahu do Jahowa DebataM, ninna Debatanta. Ndang jadi marangkup Ahu bahenonmu Debatam.

@@ -5,20 +5,20 @@ site_url: https://hans5958.id/HKBP-Guidebook
 nav:
   - 'Halaman Utama': index.md
   - 'Sepuluh Perintah Allah':
-    - 'Bahasa Indonesia – Sepuluh Perintah Allah': sepuluh-perintah-allah.md
-    - 'Bahasa Batak – Patik Ni Debata': patik-ni-debata.md
+    - sepuluh-perintah-allah.md
+    - patik-ni-debata.md
   - 'Kesaksian Iman Kristen':
-    - 'Bahasa Indonesia – Kesaksian Iman Kristen': kesaksian-iman-kristen.md
-    - 'Bahasa Batak – Hata Haporseaon': hata-haporseaon.md
+    - kesaksian-iman-kristen.md
+    - hata-haporseaon.md
   - 'Doa Bapa Kami':
-    - 'Bahasa Indonesia – Doa Bapa Kami': doa-bapa-kami.md
-    - 'Bahasa Batak – Tangiang Ale Amanami': tangiang-ale-amanami.md
+    - doa-bapa-kami.md
+    - tangiang-ale-amanami.md
   - 'Sakramen Baptisan Kudus':
-    - 'Bahasa Indonesia – Sakramen Baptisan Kudus': sakramen-baptisan-kudus.md
-    - 'Bahasa Batak – Pandidion': pandidion.md
+    - sakramen-baptisan-kudus.md
+    - pandidion.md
   - 'Sakramen Perjamuan Kudus':
-    - 'Bahasa Indonesia – Sakramen Perjamuan Kudus': sakramen-perjamuan-kudus.md
-    - 'Bahasa Batak – Marulaon Na Badia': marulaon-na-badia.md
+    - sakramen-perjamuan-kudus.md
+    - marulaon-na-badia.md
   - 'Konfesi HKBP':
     - 1951:
       - 'Bahasa Indonesia': konfesi-hkbp/1951/id.md

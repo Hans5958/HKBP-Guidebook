@@ -1,4 +1,7 @@
-# Sepuluh Perintah Allah
+---
+title: Sepuluh Perintah Allah
+subtitle: Bahasa Indonesia
+---
 
 **Nama lain:** Kesepuluh Firman, Dasa Titah
 

@@ -1,3 +1,8 @@
+---
+title: Tangiang Ale Amanami
+subtitle: Bahasa Batak
+---
+
 # Tangiang Ale Amanami
 
 **Nama lain:** Tangiang Na Pinodahon ni Tuhan Jesus tu Angka SiseanNa

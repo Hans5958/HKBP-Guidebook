@@ -1,4 +1,7 @@
-# Sakramen Perjamuan Kudus
+---
+title: Sakramen Perjamuan Kudus
+subtitle: Bahasa Indonesia
+---
 
 ### Apakah Perjamuan Kudus itu?
 Perjamuan Kudus adalah daging dan darah yang sebenarnya dari Tuhan kita Yesus Kristus melalui roti dan anggur yang diberikan bagi orang Kristen, sesuai dengan penetapan Yesus Kristus sendiri.

@@ -1,4 +1,7 @@
-# Sakramen Baptisan Kudus
+---
+title: Sakramen Baptisan Kudus
+subtitle: Bahasa Indonesia
+---
 
 ### Apakah Baptisan Kudus itu?
 Baptisan itu bukanlah hanya air semata-mata, melainkan air yang dilaksanakan menurut perintah Allah dan dihubungkan dengan Firman Allah.

@@ -1,4 +1,7 @@
-# Pandidion
+---
+title: Pandidion
+subtitle: Bahasa Batak
+---
 
 ### Aha do lapatan ni Pandidion i?
 Ia Pandidion i ndada holan aek sambing, aek na marsaor Hata ni Debata do aek i; ai tona ni Debata do umbahen na binuat aek i.

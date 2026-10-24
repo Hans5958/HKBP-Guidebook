@@ -1,4 +1,7 @@
-# Hata Haporseaon ni Halak Kristen
+---
+title: Hata Haporseaon ni Halak Kristen
+subtitle: Bahasa Batak
+---
 
 **Nama lain:** Hata Haporseaon, Ahu Porsea
 

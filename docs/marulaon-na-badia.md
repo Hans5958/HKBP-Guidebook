@@ -1,4 +1,7 @@
-# Marulaon Na Badia
+---
+title: Marulaon Na Badia
+subtitle: Bahasa Batak
+---
 
 ### Dia do lapatan ni na marulaon na badia?
 Mangan sagusagu parhitean ni daging ni Tuhanta Jesus Kristus dohot minum anggur parhitean ni mudar ni Tuhanta Jesus Kristus songon na tinonahonNa i tu halak Kristen.
